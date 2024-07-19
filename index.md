@@ -7,6 +7,7 @@
 - [5. Profecias e Revelações](#profecias-e-revelações)
 - [6. Pecado de Morte](#pecado-de-morte)
 - [7. Sono da Alma](#sono-da-alma)
+- [8. Predestinação](#predestinacao-e-eleicao)
 
 {% include salvacao-pela-graca-e-obras.md %}
 
@@ -21,3 +22,5 @@
 {% include pecado-de-morte.md %}
 
 {% include sono-da-alma.md %}
+
+{% include predestinacao-e-eleicao.md %}
