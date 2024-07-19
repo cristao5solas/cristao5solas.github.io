@@ -6,6 +6,7 @@
 - [4. Pastoreio e Governança](#pastoreio-e-governanca)
 - [5. Profecias e Revelações](#profecias-e-revelações)
 - [6. Pecado de Morte](#pecado-de-morte)
+- [7. Sono da Alma](#sono-da-alma)
 
 {% include salvacao-pela-graca-e-obras.md %}
 
@@ -15,6 +16,8 @@
 
 {% include pastoreio-e-governanca.md %}
 
-{% include pastoreio-e-governanca.md %}
+{% include profecias-e-revelações.md %}
 
 {% include pecado-de-morte.md %}
+
+{% include sono-da-alma.md %}
