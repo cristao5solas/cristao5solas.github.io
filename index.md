@@ -8,6 +8,7 @@
 - [6. Pecado de Morte](#pecado-de-morte)
 - [7. Sono da Alma](#sono-da-alma)
 - [8. Predestinação](#predestinacao-e-eleicao)
+- [9. Ceia do Senhor](#ceia-do-senhor)
 
 {% include salvacao-pela-graca-e-obras.md %}
 
@@ -24,3 +25,5 @@
 {% include sono-da-alma.md %}
 
 {% include predestinacao-e-eleicao.md %}
+
+{% include ceia-do-senhor.md %}
