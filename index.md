@@ -3,12 +3,18 @@
 - [1. Salvação pela Graça e Obras](#salvacao-pela-graca-e-obras)
 - [2. Significado do Batismo](#significado-do-batismo)
 - [3. Uso do véu](#uso-do-veu)
-- [4.Pastoreio e Governança](#pastoreio-e-governanca)
+- [4. Pastoreio e Governança](#pastoreio-e-governanca)
+- [5. Profecias e Revelações](#profecias-e-revelações)
+- [6. Pecado de Morte](#pecado-de-morte)
 
-{% include 1-salvacao-pela-graca-e-obras.md %}
+{% include salvacao-pela-graca-e-obras.md %}
 
-{% include 2-significado-do-batismo.md %}
+{% include significado-do-batismo.md %}
 
-{% include 3-uso-do-veu.md %}
+{% include uso-do-veu.md %}
 
-{% include 4-pastoreio-e-governanca.md %}
+{% include pastoreio-e-governanca.md %}
+
+{% include pastoreio-e-governanca.md %}
+
+{% include pecado-de-morte.md %}
