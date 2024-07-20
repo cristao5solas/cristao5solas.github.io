@@ -13,6 +13,7 @@
 [11. Estilo Musical](#estilo-musical)
 [12. Ofertas e Dízimos](#ofertas-e-dizimos)
 [13. Dons Espirituais](#dons-espirituais)
+[14. Estudo Bíblico](#estudo-biblico)
 
 {% include salvacao-pela-graca-e-obras.md %}
 
@@ -39,3 +40,5 @@
 {% include ofertas-e-dizimos.md %}
 
 {% include dons-espirituais.md %}
+
+{% include estudo-biblico.md %}
