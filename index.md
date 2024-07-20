@@ -16,6 +16,7 @@
 - [1. Estudo Bíblico](#estudo-biblico)
 - [1. Evangelismo](#evangelismo)
 - [1. Pregação](#pregacao)
+- [1. Vestimenta e Aparência](#vestimenta-e-aparencia)
 
 {% include salvacao-pela-graca-e-obras.md %}
 
@@ -48,3 +49,5 @@
 {% include evangelismo.md %}
 
 {% include pregacao.md %}
+
+{% include vestimenta-e-aparencia.md %}
