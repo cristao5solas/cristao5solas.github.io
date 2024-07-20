@@ -20,6 +20,7 @@
 - [18. Separação do Mundo](#separacao-do-mundo)
 - [19. Pecados](#pecados)
 - [20. Santidade, Santificação e Conduta Cristã](#santidade-santificacao-e-conduta-crista)
+- [21. Ósculo Santo](#pecados)
 
 {% include salvacao-pela-graca-e-obras.md %}
 
@@ -60,5 +61,7 @@
 {% include pecados.md %}
 
 {% include santidade-santificacao-e-conduta-crista.md %}
+
+{% include osculo-santo.md %}
 
 Este compilado reflete a complexidade e as nuances das crenças, práticas e interpretações da Congregação Cristã no Brasil em comparação com a fé reformada, destacando as bases bíblicas e os argumentos teológicos de ambos os lados.

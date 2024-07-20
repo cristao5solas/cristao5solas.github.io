@@ -244,8 +244,42 @@ Isaías 1:18: "Vinde, então, e argui-me, diz o Senhor; ainda que os vossos peca
      - 1 Pedro 2:12: "Tendo o vosso viver honesto entre os gentios; para que, naquilo em que falam mal de vós, como de malfeitores, glorifiquem a Deus no dia da visitação, pelas boas obras que em vós observem."
      - Tiago 1:27: "A religião pura e imaculada para com Deus, o Pai, é esta: Visitar os órfãos e as viúvas nas suas tribulações, e guardar-se da corrupção do mundo."
 
-21. **Ósculo Santo**
+
+23. **Ósculo Santo**
    - **Interpretação Reformada**: A fé reformada entende o ósculo santo como uma prática cultural da igreja primitiva para expressar amor e comunhão fraterna entre os crentes. Hoje, essa prática pode ser contextualizada para formas culturais contemporâneas de saudação e carinho cristão (Romanos 16:16: "Saudai-vos uns aos outros com ósculo santo. As igrejas de Cristo vos saúdam.").
-   - **Interpretação da CCB**: A CCB
+   - **Interpretação da CCB**: A CCB mantém a prática do ósculo santo como uma expressão literal de amor fraternal entre os membros da igreja, seguindo o exemplo das Escrituras.
+   - **Contra-argumento Reformado**: A fé reformada reconhece o valor da prática como um símbolo de comunhão, mas enfatiza que o amor cristão pode ser expresso de maneiras culturalmente apropriadas e significativas para cada contexto.
+   - **Referências Bíblicas**:
+     - Romanos 16:16: "Saudai-vos uns aos outros com ósculo santo. As igrejas de Cristo vos saúdam."
+     - 1 Coríntios 16:20: "Todos os irmãos vos saúdam. Saudai-vos uns aos outros com ósculo santo."
+     - 2 Coríntios 13:12: "Saudai-vos uns aos outros com ósculo santo."
+     - 1 Tessalonicenses 5:26: "Saudai a todos os irmãos com ósculo santo."
+     - 1 Pedro 5:14: "Saudai-vos uns aos outros com ósculo de amor. Paz seja com todos vós que estais em Cristo Jesus. Amém."
+
+24. **Exclusivismo**
+   - **Interpretação Reformada**: A fé reformada defende que a verdadeira igreja é composta por todos os crentes em Cristo, independentemente de denominação. Eles
+
+ creem na unidade do Corpo de Cristo e rejeitam qualquer forma de exclusivismo que sugira que apenas uma denominação específica é a verdadeira igreja de Cristo (Efésios 4:4-6: "Há um só corpo e um só Espírito, como também fostes chamados em uma só esperança da vossa vocação; um só Senhor, uma só fé, um só batismo; um só Deus e Pai de todos, o qual é sobre todos, e por todos e em todos vós.").
+   - **Interpretação da CCB**: A CCB tende a se ver como a verdadeira igreja de Cristo, com uma forte ênfase em sua doutrina e práticas específicas como sendo as corretas e necessárias para a verdadeira fé.
+   - **Contra-argumento Reformado**: A fé reformada argumenta que o exclusivismo pode levar ao sectarismo e dividir o Corpo de Cristo. A unidade em Cristo deve ser baseada na fé comum e no reconhecimento da obra redentora de Cristo em todos os crentes, independentemente de sua afiliação denominacional.
+   - **Referências Bíblicas**:
+     - Efésios 4:4-6: "Há um só corpo e um só Espírito, como também fostes chamados em uma só esperança da vossa vocação; um só Senhor, uma só fé, um só batismo; um só Deus e Pai de todos, o qual é sobre todos, e por todos e em todos vós."
+     - João 17:21: "Para que todos sejam um, como tu, ó Pai, o és em mim, e eu em ti; que também eles sejam um em nós, para que o mundo creia que tu me enviaste."
+     - 1 Coríntios 12:12-13: "Porque, assim como o corpo é um, e tem muitos membros, e todos os membros, sendo muitos, são um só corpo, assim é Cristo também. Pois todos nós fomos batizados em um Espírito, formando um corpo, quer judeus, quer gregos, quer servos, quer livres, e todos temos bebido de um Espírito."
+     - Gálatas 3:28: "Nisto não há judeu nem grego; não há servo nem livre; não há macho nem fêmea; porque todos vós sois um em Cristo Jesus."
+     - Colossenses 3:11: "Onde não há grego nem judeu, circuncisão nem incircuncisão, bárbaro, cita, servo ou livre; mas Cristo é tudo em todos."
+
+25. **Virtude e Ser Cheio do Espírito Santo**
+   - **Interpretação Reformada**: A fé reformada entende que ser cheio do Espírito Santo é viver uma vida controlada e guiada pelo Espírito, manifestando os frutos do Espírito em caráter e ação (Efésios 5:18: "E não vos embriagueis com vinho, em que há contenda, mas enchei-vos do Espírito."; Gálatas 5:22-23: "Mas o fruto do Espírito é: amor, alegria, paz, longanimidade, benignidade, bondade, fé, mansidão, temperança. Contra estas coisas não há lei."). A plenitude do Espírito é evidenciada pela virtude e santidade na vida do crente.
+   - **Interpretação da CCB**: A CCB enfatiza que ser cheio do Espírito Santo é uma experiência contínua de poder e manifestação dos dons espirituais, especialmente o dom de línguas. Eles ensinam que a evidência de ser cheio do Espírito Santo é a capacidade de exercer esses dons no culto e na vida diária.
+   - **Contra-argumento Reformado**: A fé reformada argumenta que a plenitude do Espírito Santo é mais do que manifestações externas de poder; é uma transformação interna que resulta em uma vida de virtude e santidade. Os dons espirituais são importantes, mas o caráter cristão e os frutos do Espírito são a verdadeira evidência de uma vida cheia do Espírito.
+   - **Referências Bíblicas**:
+     - Efésios 5:18: "E não vos embriagueis com vinho, em que há contenda, mas enchei-vos do Espírito."
+     - Gálatas 5:22-23: "Mas o fruto do Espírito é: amor, alegria, paz, longanimidade, benignidade, bondade, fé, mansidão, temperança. Contra estas coisas não há lei."
+     - Atos 1:8: "Mas recebereis a virtude do Espírito Santo, que há de vir sobre vós; e ser-me-eis testemunhas, tanto em Jerusalém como em toda a Judeia e Samaria, e até aos confins da terra."
+     - Romanos 8:9: "Vós, porém, não estais na carne, mas no Espírito, se é que o Espírito de Deus habita em vós. Mas, se alguém não tem o Espírito de Cristo, esse tal não é dele."
+     - 1 Coríntios 12:7: "Mas a manifestação do Espírito é dada a cada um, para o que for útil."
+
+Estes itens adicionados complementam o entendimento das doutrinas, práticas e crenças da Congregação Cristã no Brasil em comparação com a fé reformada, oferecendo uma visão abrangente e detalhada das diferenças e fundamentos teológicos.
 
 Este compilado reflete a complexidade e as nuances das crenças, práticas e interpretações da Congregação Cristã no Brasil em comparação com a fé reformada, destacando as bases bíblicas e os argumentos teológicos de ambos os lados.
