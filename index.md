@@ -19,6 +19,7 @@
 - [17. Vestimenta e Aparência](#vestimenta-e-aparencia)
 - [18. Separação do Mundo](#separacao-do-mundo)
 - [19. Pecados](#pecados)
+- [20. Santidade, Santificação e Conduta Cristã](#santidade-santificacao-e-conduta-crista)
 
 {% include salvacao-pela-graca-e-obras.md %}
 
@@ -57,5 +58,7 @@
 {% include separacao-do-mundo.md %}
 
 {% include pecados.md %}
+
+{% include santidade-santificacao-e-conduta-crista.md %}
 
 Este compilado reflete a complexidade e as nuances das crenças, práticas e interpretações da Congregação Cristã no Brasil em comparação com a fé reformada, destacando as bases bíblicas e os argumentos teológicos de ambos os lados.
