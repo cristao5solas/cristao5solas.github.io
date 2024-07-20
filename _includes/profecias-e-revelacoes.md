@@ -1,12 +1,15 @@
 ## Profecias e Revelações {#profecias-e-revelações}
 
-**Interpretação Reformada**: A fé reformada crê que a revelação divina está completa na Bíblia (2 Timóteo 3:16-17: "Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça."). Qualquer nova profecia deve ser testada e confirmada pelas Escrituras (1 Coríntios 14:29: "E falem dois ou três profetas, e os outros julguem.").
+#### Interpretação Reformada
+A fé reformada crê que a revelação divina está completa na Bíblia (2 Timóteo 3:16-17: "Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça."). Qualquer nova profecia deve ser testada e confirmada pelas Escrituras (1 Coríntios 14:29: "E falem dois ou três profetas, e os outros julguem.").
 
-**Interpretação da CCB**: A CCB valoriza as profecias e revelações durante os cultos como formas contínuas de comunicação de Deus. Eles citam Joel 2:28 ("E há de ser que, depois, derramarei o meu Espírito sobre toda a carne, e vossos filhos e vossas filhas profetizarão...") como suporte.
+#### Interpretação da CCB
+A CCB valoriza as profecias e revelações durante os cultos como formas contínuas de comunicação de Deus. Eles citam Joel 2:28 ("E há de ser que, depois, derramarei o meu Espírito sobre toda a carne, e vossos filhos e vossas filhas profetizarão...") como suporte.
 
-**Contra-argumento Reformado**: A fé reformada questiona a validade de novas revelações, argumentando que Deus fala hoje através de Sua Palavra escrita. A Bíblia é suficiente e completa para todas as necessidades de orientação espiritual (Hebreus 1:1-2).
+#### Contra-argumento Reformado
+A fé reformada questiona a validade de novas revelações, argumentando que Deus fala hoje através de Sua Palavra escrita. A Bíblia é suficiente e completa para todas as necessidades de orientação espiritual (Hebreus 1:1-2).
 
-**Referências Bíblicas**:
+#### Referências Bíblicas
 - 2 Timóteo 3:16-17: "Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça. Para que o homem de Deus seja perfeito e perfeitamente preparado para toda boa obra."
 - 1 Coríntios 14:29: "E falem dois ou três profetas, e os outros julguem."
 - Hebreus 1:1-2: "Havendo Deus antigamente falado muitas vezes, e de muitas maneiras, aos pais, pelos profetas, a nós falou-nos nestes últimos dias pelo Filho."
