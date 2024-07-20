@@ -22,6 +22,7 @@
 - [20. Santidade, Santificação e Conduta Cristã](#santidade-santificacao-e-conduta-crista)
 - [21. Ósculo Santo](#osculo-santo)
 - [22. Exclusivismo](#exclusivismo)
+- [23. Virtude e Ser Cheio do Espírito Santo](#virtude-e-ser-cheio-do-espirito-santo)
 
 {% include salvacao-pela-graca-e-obras.md %}
 
@@ -66,5 +67,7 @@
 {% include osculo-santo.md %}
 
 {% include exclusivismo.md %}
+
+{% include virtude-e-ser-cheio-do-espirito-santo.md %}
 
 Este compilado reflete a complexidade e as nuances das crenças, práticas e interpretações da Congregação Cristã no Brasil em comparação com a fé reformada, destacando as bases bíblicas e os argumentos teológicos de ambos os lados.
