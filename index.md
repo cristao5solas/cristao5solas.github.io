@@ -1,19 +1,20 @@
 ### Compilado Completo de Doutrinas, Ordenanças, Práticas, Costumes e Crenças da Congregação Cristã no Brasil (CCB) e a Análise sob a Ótica da Fé Reformada
 
-[01. Salvação pela Graça e Obras](#salvacao-pela-graca-e-obras)
-[02. Significado do Batismo](#significado-do-batismo)
-[03. Uso do véu](#uso-do-veu)
-[04. Pastoreio e Governança](#pastoreio-e-governanca)
-[05. Profecias e Revelações](#profecias-e-revelacoes)
-[06. Pecado de Morte](#pecado-de-morte)
-[07. Sono da Alma](#sono-da-alma)
-[08. Predestinação](#predestinacao-e-eleicao)
-[09. Ceia do Senhor](#ceia-do-senhor)
+[1. Salvação pela Graça e Obras](#salvacao-pela-graca-e-obras)
+[2. Significado do Batismo](#significado-do-batismo)
+[3. Uso do véu](#uso-do-veu)
+[4. Pastoreio e Governança](#pastoreio-e-governanca)
+[5. Profecias e Revelações](#profecias-e-revelacoes)
+[6. Pecado de Morte](#pecado-de-morte)
+[7. Sono da Alma](#sono-da-alma)
+[8. Predestinação](#predestinacao-e-eleicao)
+[9. Ceia do Senhor](#ceia-do-senhor)
 [10. Modelos de Oração](#modelos-de-oracao)
 [11. Estilo Musical](#estilo-musical)
 [12. Ofertas e Dízimos](#ofertas-e-dizimos)
 [13. Dons Espirituais](#dons-espirituais)
 [14. Estudo Bíblico](#estudo-biblico)
+[14. Evangelismo](#evangelismo)
 
 {% include salvacao-pela-graca-e-obras.md %}
 
@@ -42,3 +43,5 @@
 {% include dons-espirituais.md %}
 
 {% include estudo-biblico.md %}
+
+{% include evangelismo.md %}
