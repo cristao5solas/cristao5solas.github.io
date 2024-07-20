@@ -1,4 +1,4 @@
-## 17. Separação do Mundo {#separacao-do-mundo}
+## 18. Separação do Mundo {#separacao-do-mundo}
 
 **Interpretação Reformada**: A fé reformada ensina que os crentes devem viver de maneira santa e separada do pecado, mas sem se isolar do mundo. Eles são chamados a ser sal e luz, influenciando a sociedade com os valores do Reino de Deus (Mateus 5:13-16: "Vós sois o sal da terra; e, se o sal for insípido, com que se há de salgar? Para nada mais presta, senão para se lançar fora e ser pisado pelos homens. Vós sois a luz do mundo; não se pode esconder uma cidade edificada sobre um monte; nem se acende a candeia e se coloca debaixo do alqueire, mas no velador, e dá luz a todos os que estão na casa. Assim resplandeça a vossa luz diante dos homens, para que vejam as vossas boas obras e glorifiquem a vosso Pai, que está nos céus.").
 **Interpretação da CCB**: A CCB enfatiza uma separação mais rigorosa do mundo, evitando entretenimentos seculares, festas e outros eventos considerados mundanos. Eles acreditam que isso ajuda a manter a santidade e a pureza dos membros.
