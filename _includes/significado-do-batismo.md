@@ -1,4 +1,4 @@
-## 2. Significado do Batismo {#significado-do-batismo}
+## Significado do Batismo {#significado-do-batismo}
 
 **Interpretação Reformada**: A fé reformada entende o batismo como um símbolo da união do crente com Cristo em sua morte, sepultamento e ressurreição. É uma ordenança que representa a purificação dos pecados e a nova vida em Cristo. Durante o batismo, as palavras frequentemente usadas são "Em nome do Pai, e do Filho, e do Espírito Santo", conforme a Grande Comissão em Mateus 28:19-20 (Romanos 6:3-4: "Ou, porventura, ignorais que todos quantos fomos batizados em Cristo Jesus fomos batizados na sua morte?"). A fé reformada não acredita que o batismo, em si, perdoe pecados, mas que simboliza a lavagem espiritual que ocorre na conversão.
 

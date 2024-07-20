@@ -1,4 +1,4 @@
-## 4. Pastoreio e Governança {#pastoreio-e-governanca}
+## Pastoreio e Governança {#pastoreio-e-governanca}
 
 **Interpretação Reformada**: A fé reformada defende uma liderança eclesiástica composta por presbíteros e diáconos, eleitos pela congregação. O pastor, que dedica integralmente seu tempo ao ministério, é sustentado financeiramente pela igreja. A Bíblia apoia a remuneração dos líderes espirituais (1 Timóteo 5:17-18: "Os presbíteros que governam bem sejam estimados por dignos de duplicada honra, principalmente os que trabalham na palavra e na doutrina. Porque diz a Escritura: Não ligarás a boca ao boi que trilha, e: Digno é o obreiro do seu salário.").
 

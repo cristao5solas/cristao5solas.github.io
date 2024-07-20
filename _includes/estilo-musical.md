@@ -1,4 +1,4 @@
-## 11. Estilo Musical {#estilo-musical}
+## Estilo Musical {#estilo-musical}
 
 **Interpretação Reformada**: A fé reformada valoriza a música que glorifica a Deus e edifica a congregação. Isso pode incluir uma variedade de estilos musicais, desde que as letras sejam teologicamente sólidas e centradas em Cristo (Efésios 5:19: "Falando entre vós com salmos, e hinos, e cânticos espirituais; cantando e salmodiando ao Senhor no vosso coração.").
 

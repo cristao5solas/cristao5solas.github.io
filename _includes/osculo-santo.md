@@ -1,4 +1,4 @@
-## 21. Ósculo Santo {#osculo-santo}
+## Ósculo Santo {#osculo-santo}
 
 **Interpretação Reformada**: A fé reformada entende o ósculo santo como uma prática cultural da igreja primitiva para expressar amor e comunhão fraterna entre os crentes. Hoje, essa prática pode ser contextualizada para formas culturais contemporâneas de saudação e carinho cristão (Romanos 16:16: "Saudai-vos uns aos outros com ósculo santo. As igrejas de Cristo vos saúdam.").
 

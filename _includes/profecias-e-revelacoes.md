@@ -1,4 +1,4 @@
-## 5. Profecias e Revelações {#profecias-e-revelações}
+## Profecias e Revelações {#profecias-e-revelações}
 
 **Interpretação Reformada**: A fé reformada crê que a revelação divina está completa na Bíblia (2 Timóteo 3:16-17: "Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça."). Qualquer nova profecia deve ser testada e confirmada pelas Escrituras (1 Coríntios 14:29: "E falem dois ou três profetas, e os outros julguem.").
 

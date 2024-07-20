@@ -1,4 +1,4 @@
-## 16. Pregação {#pregacao}
+## Pregação {#pregacao}
 
 **Interpretação Reformada**: A fé reformada defende que a pregação deve ser cuidadosamente preparada, fundamentada na exposição fiel das Escrituras e centrada em Cristo. A pregação expositiva busca explicar o texto bíblico em seu contexto e aplicar seus ensinamentos à vida dos ouvintes (2 Timóteo 4:2: "Que pregues a palavra, instes a tempo e fora de tempo, redarguas, repreendas, exortes, com toda a longanimidade e doutrina.").
 

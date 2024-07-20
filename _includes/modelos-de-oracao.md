@@ -1,4 +1,4 @@
-## 10. Modelos de Oração {#modelos-de-oracao}
+## Modelos de Oração {#modelos-de-oracao}
 
 **Interpretação Reformada**: A oração é uma comunicação direta com Deus, podendo ser realizada em qualquer posição (de joelhos, em pé, sentado). A Bíblia não prescreve uma única postura específica para a oração, mas enfatiza a atitude do coração (Filipenses 4:6: "Não estejais inquietos por coisa alguma; antes, as vossas petições sejam em tudo conhecidas diante de Deus pela oração e súplica, com ação de graças.").
 

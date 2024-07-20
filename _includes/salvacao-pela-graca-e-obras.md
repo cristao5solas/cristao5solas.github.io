@@ -1,4 +1,4 @@
-## 1. Salvação pela Graça e Obras {#salvacao-pela-graca-e-obras}
+## Salvação pela Graça e Obras {#salvacao-pela-graca-e-obras}
 
 **Interpretação Reformada**: A fé reformada ensina que a salvação é pela graça somente, através da fé somente, sem a necessidade de obras para manter a salvação (Efésios 2:8-9: "Porque pela graça sois salvos, por meio da fé; e isso não vem de vós; é dom de Deus. Não vem das obras, para que ninguém se glorie."). As obras são o fruto da fé genuína, não a causa da salvação (Tiago 2:17: "Assim também a fé, se não tiver as obras, é morta em si mesma.").
 

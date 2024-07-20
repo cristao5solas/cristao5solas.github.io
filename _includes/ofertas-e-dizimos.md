@@ -1,4 +1,4 @@
-## 12. Ofertas e Dízimos {#ofertas-e-dizimos}
+## Ofertas e Dízimos {#ofertas-e-dizimos}
 
 **Interpretação Reformada**: A fé reformada ensina que os dízimos e ofertas são uma expressão de gratidão e obediência a Deus, mas não uma condição para a salvação. A contribuição deve ser voluntária, alegre e proporcional às bênçãos recebidas (2 Coríntios 9:7: "Cada um contribua segundo propôs no seu coração, não com tristeza ou por necessidade; porque Deus ama ao que dá com alegria.").
 

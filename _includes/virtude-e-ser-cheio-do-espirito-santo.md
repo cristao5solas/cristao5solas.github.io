@@ -1,4 +1,4 @@
-## 23. Virtude e Ser Cheio do Espírito Santo {#virtude-e-ser-cheio-do-espirito-santo}
+## Virtude e Ser Cheio do Espírito Santo {#virtude-e-ser-cheio-do-espirito-santo}
 
 **Interpretação Reformada**: A fé reformada entende que ser cheio do Espírito Santo é viver uma vida controlada e guiada pelo Espírito, manifestando os frutos do Espírito em caráter e ação (Efésios 5:18: "E não vos embriagueis com vinho, em que há contenda, mas enchei-vos do Espírito."; Gálatas 5:22-23: "Mas o fruto do Espírito é: amor, alegria, paz, longanimidade, benignidade, bondade, fé, mansidão, temperança. Contra estas coisas não há lei."). A plenitude do Espírito é evidenciada pela virtude e santidade na vida do crente.
 

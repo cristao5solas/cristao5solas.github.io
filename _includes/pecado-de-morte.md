@@ -1,4 +1,4 @@
-## 6. Pecado de Morte {#pecado-de-morte}
+## Pecado de Morte {#pecado-de-morte}
 **Interpretação Reformada**: A fé reformada reconhece a existência do pecado imperdoável, a blasfêmia contra o Espírito Santo (Marcos 3:28-29: "Em verdade vos digo que tudo será perdoado aos filhos dos homens, os pecados e blasfêmias com que blasfemarem; qualquer, porém, que blasfemar contra o Espírito Santo, nunca mais terá perdão, mas é réu de pecado eterno."). A apostasia, ou rejeição final e deliberada da fé, é vista como uma manifestação desse pecado (Hebreus 6:4-6).
   
  **Interpretação da CCB**: A CCB ensina que existem pecados que levam à morte espiritual e são imperdoáveis. Eles se baseiam em 1 João 5:16-17 ("Se alguém vir pecar seu irmão, pecado que não é para a morte, orará, e Deus dará a vida àqueles que não pecam para a morte. Há pecado para a morte, e por esse não digo que ore."). Dentro da CCB, o pecado do adultério é frequentemente visto com um peso maior do que outros pecados e é tratado com extrema severidade, sendo tipicamente considerado o pecado de morte.

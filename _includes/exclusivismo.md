@@ -1,4 +1,4 @@
-## 22. Exclusivismo {#exclusivismo}
+## Exclusivismo {#exclusivismo}
 
 **Interpretação Reformada**: A fé reformada defende que a verdadeira igreja é composta por todos os crentes em Cristo, independentemente de denominação. Eles creem na unidade do Corpo de Cristo e rejeitam qualquer forma de exclusivismo que sugira que apenas uma denominação específica é a verdadeira igreja de Cristo (Efésios 4:4-6: "Há um só corpo e um só Espírito, como também fostes chamados em uma só esperança da vossa vocação; um só Senhor, uma só fé, um só batismo; um só Deus e Pai de todos, o qual é sobre todos, e por todos e em todos vós.").
 

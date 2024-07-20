@@ -1,4 +1,4 @@
-## 9. Ceia do Senhor {#ceia-do-senhor}
+## Ceia do Senhor {#ceia-do-senhor}
 
 **Interpretação Reformada**: A fé reformada vê a Ceia do Senhor como um sacramento instituído por Cristo para ser observado frequentemente em memória Dele. A prática da ceia deve ser regular, não uma vez por ano. A ceia é uma comunhão espiritual com Cristo e não envolve transubstanciação, onde o pão e o vinho se transformariam no corpo e sangue de Cristo (1 Coríntios 11:23-26: "Porque eu recebi do Senhor o que também vos ensinei: que o Senhor Jesus, na noite em que foi traído, tomou o pão; e, tendo dado graças, o partiu e disse: Tomai, comei; isto é o meu corpo que é partido por vós; fazei isto em memória de mim. Semelhantemente também, depois de cear, tomou o cálice, dizendo: Este cálice é o novo testamento no meu sangue; fazei isso, todas as vezes que beberdes, em memória de mim. Porque todas as vezes que comerdes este pão e beberdes este cálice anunciais a morte do Senhor, até que venha."). Na fé reformada, não é necessário enterrar os resíduos da Ceia, pois o foco está no simbolismo e na fé, não em uma mudança literal dos elementos.
 

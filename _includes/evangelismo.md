@@ -1,4 +1,4 @@
-## 15. Evangelismo {#evangelismo}
+## Evangelismo {#evangelismo}
 
 **Interpretação Reformada**: A fé reformada vê o evangelismo como um mandato de Cristo para todos os crentes. A Grande Comissão é um chamado para pregar o evangelho a todas as nações, batizando e ensinando-os a guardar todas as coisas que Cristo ordenou (Mateus 28:19-20: "Portanto ide, ensinai todas as nações, batizando-as em nome do Pai, e do Filho, e do Espírito Santo; ensinando-as a guardar todas as coisas que eu vos tenho mandado; e eis que eu estou convosco todos os dias, até a consumação dos séculos. Amém.").
 

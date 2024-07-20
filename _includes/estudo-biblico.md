@@ -1,4 +1,4 @@
-## 14. Estudo Bíblico {#estudo-biblico}
+## Estudo Bíblico {#estudo-biblico}
 
 **Interpretação Reformada**: A fé reformada enfatiza a importância do estudo diário e sistemático da Bíblia. A leitura e o estudo das Escrituras são fundamentais para o crescimento espiritual e para o conhecimento da vontade de Deus (2 Timóteo 3:16-17: "Toda a Escritura é inspirada por Deus, e útil para ensinar, para redarguir, para corrigir, para instruir em justiça.").
 

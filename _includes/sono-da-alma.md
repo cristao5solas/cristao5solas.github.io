@@ -1,4 +1,4 @@
-## 7. Sono da Alma {#sono-da-alma}
+## Sono da Alma {#sono-da-alma}
 
 **Interpretação Reformada**: A fé reformada ensina que após a morte, os crentes entram imediatamente na presença de Deus (Filipenses 1:23: "Ora, de um e de outro lado estou constrangido, tendo o desejo de partir e estar com Cristo, porque isto é ainda muito melhor."; 2 Coríntios 5:8: "Mas temos confiança e desejamos antes deixar este corpo, para habitar com o Senhor.").
 

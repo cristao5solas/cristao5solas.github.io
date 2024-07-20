@@ -1,4 +1,4 @@
-## 19. Pecados {#pecados}
+## Pecados {#pecados}
 
 **Interpretação Reformada**: A fé reformada ensina que todos os pecados são ofensivos a Deus e que não há hierarquia de pecados. Todos os pecados, sejam considerados "grandes" ou "pequenos", necessitam de arrependimento e perdão através de Jesus Cristo. A justiça é alcançada pela fé e não pelas obras (Romanos 3:23-24: "Porque todos pecaram e destituídos estão da glória de Deus; sendo justificados gratuitamente pela sua graça, pela redenção que há em Cristo Jesus.").
 

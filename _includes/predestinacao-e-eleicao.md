@@ -1,4 +1,4 @@
-## 8. Predestinação {#predestinacao-e-eleicao}
+## Predestinação {#predestinacao-e-eleicao}
 
 **Interpretação Reformada**: A fé reformada acredita na predestinação como parte do plano soberano de Deus (Efésios 1:4-5: "Como também nos elegeu nele antes da fundação do mundo, para que fôssemos santos e irrepreensíveis diante dele em amor; e nos predestinou para filhos de adoção por Jesus Cristo, para si mesmo, segundo o beneplácito de sua vontade."). A predestinação é vista como um ato de graça soberana, sem relação com mérito humano.
 

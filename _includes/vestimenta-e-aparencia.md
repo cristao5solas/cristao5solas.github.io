@@ -1,4 +1,4 @@
-## 17. Vestimenta e Aparência {#vestimenta-e-aparencia}
+## Vestimenta e Aparência {#vestimenta-e-aparencia}
 
 **Interpretação Reformada**: A fé reformada não prescreve um código específico de vestimenta, mas ensina que a modéstia e a decência são princípios bíblicos a serem seguidos (1 Timóteo 2:9-10: "Que do mesmo modo as mulheres se ataviem em traje honesto, com pudor e modéstia, não com tranças, ou com ouro, ou pérolas, ou vestidos preciosos, mas (como convém a mulheres que fazem profissão de servir a Deus) com boas obras."). A aparência deve refletir uma atitude de reverência e respeito, mas sem se tornar um legalismo.
 **Interpretação da CCB**: A CCB adota um código de vestimenta mais conservador, onde as mulheres usam saias ou vestidos compridos, evitam joias e maquiagem, e os homens se vestem de maneira formal. A aparência simples é vista como uma expressão de humildade e separação do mundo.
