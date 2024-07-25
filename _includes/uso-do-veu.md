@@ -1,3 +1,7 @@
+Claro, vou focar na refutação do "poderio de Deus e dos anjos" no contra-argumento reformado, conforme solicitado.
+
+---
+
 ## Uso do Véu {#uso-do-veu}
 
 ### Interpretação Reformada
@@ -34,9 +38,13 @@ Os reformados ressaltam que a frase "nós não temos tal costume, nem as igrejas
 
 Além disso, a fé reformada sublinha que a Bíblia ensina que a submissão e a autoridade no casamento e na igreja devem ser expressas através do comportamento e da atitude. Efésios 5:22-24 diz: "Vós, mulheres, sujeitai-vos a vossos maridos, como ao Senhor; porque o marido é a cabeça da mulher, como também Cristo é a cabeça da igreja, sendo ele próprio o salvador do corpo. De sorte que, assim como a igreja está sujeita a Cristo, assim também as mulheres sejam em tudo sujeitas a seus maridos." Este versículo enfatiza a importância da submissão e da autoridade, mas não menciona o uso do véu como um requisito.
 
+Sobre a interpretação de 1 Coríntios 11:10, onde Paulo diz "Portanto, a mulher deve ter sobre a cabeça sinal de poderio, por causa dos anjos", os reformados acreditam que a menção aos anjos é uma referência ao respeito pela ordem divina estabelecida, e não uma exigência literal de um véu físico. Eles argumentam que Paulo usa os anjos como um exemplo de seres que respeitam a ordem e a autoridade, e não como uma indicação de que o uso do véu é um mandamento divino para todas as mulheres em todos os tempos.
+
 Os reformados também apontam para 1 Pedro 3:3-4, que afirma: "O enfeite delas não seja o exterior, no frisado dos cabelos, no uso de joias de ouro, na compostura de vestes; mas o homem encoberto no coração; no incorruptível trajo de um espírito manso e quieto, que é precioso diante de Deus." Este versículo sugere que a verdadeira beleza e submissão de uma mulher são vistas em seu comportamento e atitude, não em sua aparência externa ou em um símbolo específico como o véu.
 
 Além disso, a fé reformada alerta sobre o perigo de se concentrar excessivamente em práticas externas, como o uso do véu, que podem desviar a atenção do foco principal da vida cristã, que é a transformação do coração e a conformidade à imagem de Cristo. Em Colossenses 2:16-17, Paulo adverte contra o julgamento baseado em práticas externas: "Portanto, ninguém vos julgue pelo comer, ou pelo beber, ou por causa dos dias de festa, ou da lua nova, ou dos sábados, que são sombras das coisas futuras, mas o corpo é de Cristo."
+
+A fé reformada também reconhece que muitas práticas cristãs possuem raízes no judaísmo, refletindo uma continuidade e cumprimento das tradições e profecias do Antigo Testamento. Por exemplo, os sacrifícios prescritos pela lei apontam para o sacrifício de Jesus Cristo, a circuncisão e as purificações antecipam o batismo, e a Páscoa judaica prenuncia a Santa Ceia. Em contraste com estes exemplos, o uso do véu não se alinha com essa lógica de continuidade e cumprimento, ficando completamente desprovido de uma simbologia anterior. Não é possível correlacionar o véu com nenhum fundamento prévio da lei ou com qualquer ensinamento de Cristo. Isso reforça a evidência de que o véu é um costume cultural e social específico da época de Paulo, e não uma ordenança do Antigo Testamento ou uma prática estabelecida por Cristo na nova aliança.
 
 Finalmente, a fé reformada se apoia na suficiência das Escrituras para todas as necessidades de orientação espiritual. 2 Timóteo 3:16-17 diz: "Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça. Para que o homem de Deus seja perfeito e perfeitamente preparado para toda boa obra." Os reformados argumentam que a Bíblia fornece tudo o que é necessário para a vida e piedade, e que a verdadeira submissão e autoridade são questões de coração e atitude, conforme ensinadas nas Escrituras, e não necessariamente de práticas externas específicas.
 
@@ -48,3 +56,7 @@ Finalmente, a fé reformada se apoia na suficiência das Escrituras para todas a
 - 1 Pedro 3:1-5: "Semelhantemente, vós, mulheres, sede sujeitas a vossos próprios maridos; para que também, se alguns não obedecem à palavra, pelo porte de suas mulheres sejam ganhos sem palavra; considerando a vossa vida casta, em temor. O enfeite delas não seja o exterior, no frisado dos cabelos, no uso de joias de ouro, na compostura de vestes; mas o homem encoberto no coração; no incorruptível trajo de um espírito manso e quieto, que é precioso diante de Deus. Porque assim se adornavam também antigamente as santas mulheres que esperavam em Deus, e estavam sujeitas a seus maridos."
 - 2 Timóteo 3:16-17: "Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça. Para que o homem de Deus seja perfeito e perfeitamente preparado para toda boa obra."
 - Colossenses 2:16-17: "Portanto, ninguém vos julgue pelo comer, ou pelo beber, ou por causa dos dias de festa, ou da lua nova, ou dos sábados, que são sombras das coisas futuras, mas o corpo é de Cristo."
+
+---
+
+Se precisar de mais ajustes ou novas adições, por favor, me avise!
