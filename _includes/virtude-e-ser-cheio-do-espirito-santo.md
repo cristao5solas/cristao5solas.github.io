@@ -38,4 +38,4 @@ Portanto, a fé reformada refuta a ideia de que as manifestações externas de d
 - Gálatas 5:22-23: "Mas o fruto do Espírito é: amor, alegria, paz, longanimidade, benignidade, bondade, fé, mansidão, temperança. Contra estas coisas não há lei."
 - Atos 1:8: "Mas recebereis a virtude do Espírito Santo, que há de vir sobre vós; e ser-me-eis testemunhas, tanto em Jerusalém como em toda a Judeia e Samaria, e até aos confins da terra."
 - Romanos 8:9: "Vós, porém, não estais na carne, mas no Espírito, se é que o Espírito de Deus habita em vós. Mas, se alguém não tem o Espírito de Cristo, esse tal não é dele."
-- 1 Coríntios 12:7: "Mas a manifestação do Espírito é dada a cada um, para o que for útil."
+- 1 Coríntios 12:7: "Mas a manifestação do Espírito é dada a cada um, para o que for útil." 
