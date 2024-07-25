@@ -1,17 +1,48 @@
 ## Profecias e Revelações {#profecias-e-revelações}
 
-#### Interpretação Reformada
-A fé reformada crê que a revelação divina está completa na Bíblia (2 Timóteo 3:16-17: "Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça."). Qualquer nova profecia deve ser testada e confirmada pelas Escrituras (1 Coríntios 14:29: "E falem dois ou três profetas, e os outros julguem.").
+### Interpretação Reformada
 
-#### Interpretação da CCB
-A CCB valoriza as profecias e revelações durante os cultos como formas contínuas de comunicação de Deus. Eles citam Joel 2:28 ("E há de ser que, depois, derramarei o meu Espírito sobre toda a carne, e vossos filhos e vossas filhas profetizarão...") como suporte.
+A fé reformada sustenta que a revelação divina está completa na Bíblia, sendo esta suficiente para todas as necessidades de orientação espiritual. Baseando-se em 2 Timóteo 3:16-17, os reformados argumentam que "Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça. Para que o homem de Deus seja perfeito e perfeitamente preparado para toda boa obra." Assim, consideram que tudo o que é necessário para a salvação e a vida cristã já foi revelado nas Escrituras.
 
-#### Contra-argumento Reformado
-A fé reformada questiona a validade de novas revelações, argumentando que Deus fala hoje através de Sua Palavra escrita. A Bíblia é suficiente e completa para todas as necessidades de orientação espiritual (Hebreus 1:1-2).
+Os reformados defendem que Deus já revelou tudo o que é necessário para a vida e piedade através da Bíblia. Hebreus 1:1-2 apoia essa visão ao declarar: "Havendo Deus antigamente falado muitas vezes, e de muitas maneiras, aos pais, pelos profetas, a nós falou-nos nestes últimos dias pelo Filho." Este versículo sugere que a revelação de Deus está completa em Cristo, e que após a vinda de Cristo, não há necessidade de novas revelações para a salvação e vida cristã.
 
-#### Referências Bíblicas
+A fé reformada também enfatiza que qualquer nova profecia deve ser rigorosamente testada e confirmada pela comunidade cristã à luz das Escrituras. Este princípio é sustentado por 1 Coríntios 14:29: "E falem dois ou três profetas, e os outros julguem." Além disso, 1 João 4:1 adverte: "Amados, não creiais a todo espírito, mas provai se os espíritos são de Deus, porque já muitos falsos profetas se têm levantado no mundo." Assim, a necessidade de testar e discernir qualquer nova revelação é fortemente enfatizada.
+
+Finalmente, a fé reformada recorre a Apocalipse 22:18-19 para argumentar que a revelação bíblica está completa e não deve ser adicionada ou subtraída: "Eu testifico a todo aquele que ouvir as palavras da profecia deste livro: Se alguém lhes acrescentar alguma coisa, Deus fará vir sobre ele as pragas que estão escritas neste livro; e, se alguém tirar qualquer coisa das palavras do livro desta profecia, Deus tirará a sua parte da árvore da vida, e da cidade santa, que estão escritas neste livro." Portanto, a revelação de Deus na Escritura é considerada suficiente e completa para todas as necessidades de orientação espiritual.
+
+### Interpretação da CCB
+
+A Congregação Cristã no Brasil (CCB) valoriza profundamente as profecias e revelações como formas contínuas de comunicação de Deus com os fiéis durante os cultos. Eles acreditam que o Espírito Santo continua a operar ativamente na igreja, concedendo dons espirituais para a edificação da comunidade. A base bíblica para esta crença é encontrada em Joel 2:28: "E há de ser que, depois, derramarei o meu Espírito sobre toda a carne, e vossos filhos e vossas filhas profetizarão, os vossos velhos terão sonhos, os vossos jovens terão visões."
+
+Os membros da CCB entendem que as profecias e revelações são manifestações do Espírito Santo, conforme descrito em Atos 2:17-18: "E nos últimos dias acontecerá, diz Deus, que do meu Espírito derramarei sobre toda a carne; e os vossos filhos e as vossas filhas profetizarão, os vossos jovens terão visões, e os vossos velhos terão sonhos; e também do meu Espírito derramarei sobre os meus servos e as minhas servas naqueles dias, e profetizarão." Eles interpretam essas passagens como evidência de que Deus continua a falar diretamente aos crentes por meio de profecias, sonhos e visões.
+
+Na prática da CCB, as profecias e revelações por sonhos são altamente valorizadas e desempenham um papel crucial nas palavras dos cultos. Os fiéis acreditam que, através dessas manifestações, Deus oferece orientação específica e direta, o que é essencial para a tomada de decisões tanto individuais quanto coletivas. Acredita-se que o Espírito Santo utiliza os profetas e os sonhos dos membros dentro da congregação para transmitir mensagens divinas que ajudam a orientar a vida espiritual e prática dos crentes. Este processo de profetizar e receber revelações é visto como uma continuidade do trabalho do Espírito Santo na igreja contemporânea, semelhante ao que é descrito no Novo Testamento.
+
+Para a CCB, as revelações e profecias não contradizem a Bíblia, mas complementam a orientação divina já presente nas Escrituras. Elas são vistas como uma maneira de Deus guiar e edificar a igreja contemporânea, mantendo viva a experiência do Espírito Santo entre os crentes.
+
+### Contra-argumento Reformado
+
+A fé reformada questiona a validade de novas revelações e profecias contínuas defendidas pela CCB, argumentando que a Bíblia é suficiente e completa para todas as necessidades de orientação espiritual. Os reformados acreditam que a ênfase em novas revelações pode comprometer a suficiência das Escrituras e abrir caminho para interpretações subjetivas e potencialmente errôneas. Eles defendem que a Bíblia deve ser o guia supremo para todas as ocasiões da vida e que confiar excessivamente em sonhos e outras formas de revelação pode levar a interpretações distorcidas que divergem da orientação bíblica.
+
+Hebreus 1:1-2 é frequentemente citado para sustentar esta perspectiva: "Havendo Deus antigamente falado muitas vezes, e de muitas maneiras, aos pais, pelos profetas, a nós falou-nos nestes últimos dias pelo Filho." Para os reformados, este versículo indica que a revelação através de Jesus Cristo é final e completa, e que não há necessidade de novas revelações após a vinda de Cristo.
+
+Os reformados reconhecem que Joel 2:28 e Atos 2:17-18 mencionam a profecia, os sonhos e os dons espirituais, mas interpretam essas passagens como cumpridas no dia de Pentecostes e no estabelecimento inicial da igreja. Eles acreditam que essas manifestações eram sinais específicos para aquele período de transição e fundação da igreja, não necessariamente como uma prática contínua.
+
+Além disso, os reformados apontam que a prática de profecias contínuas e revelações por sonhos pode resultar em confusão e divisões, contrárias à ordem que deve caracterizar a igreja de Deus. 1 Coríntios 14:33 declara: "Porque Deus não é Deus de confusão, senão de paz, como em todas as igrejas dos santos." A ênfase é que todas as coisas devem ser feitas com decência e ordem (1 Coríntios 14:40). A introdução de novas revelações pode, segundo os reformados, desviar a atenção da Palavra escrita de Deus, que é a autoridade suprema e infalível.
+
+Além disso, a fé reformada alerta sobre o perigo de falsos profetas, como advertido em 1 João 4:1: "Amados, não creiais a todo espírito, mas provai se os espíritos são de Deus, porque já muitos falsos profetas se têm levantado no mundo." Eles argumentam que a insistência em novas revelações pode desviar a atenção da Palavra escrita de Deus e potencialmente introduzir falsas doutrinas.
+
+Por fim, a fé reformada se apoia em Apocalipse 22:18-19 para reforçar a completude da revelação bíblica: "Eu testifico a todo aquele que ouvir as palavras da profecia deste livro: Se alguém lhes acrescentar alguma coisa, Deus fará vir sobre ele as pragas que estão escritas neste livro; e, se alguém tirar qualquer coisa das palavras do livro desta profecia, Deus tirará a sua parte da árvore da vida, e da cidade santa, que estão escritas neste livro." Dessa forma, qualquer tentativa de adicionar novas revelações à Bíblia é vista como uma violação da completude e suficiência da Escritura.
+
+### Referências Bíblicas
+
 - 2 Timóteo 3:16-17: "Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça. Para que o homem de Deus seja perfeito e perfeitamente preparado para toda boa obra."
 - 1 Coríntios 14:29: "E falem dois ou três profetas, e os outros julguem."
 - Hebreus 1:1-2: "Havendo Deus antigamente falado muitas vezes, e de muitas maneiras, aos pais, pelos profetas, a nós falou-nos nestes últimos dias pelo Filho."
 - Deuteronômio 18:20-22: "Porém o profeta que presumir de falar alguma palavra em meu nome, que eu lhe não mandei falar, ou o que falar em nome de outros deuses, o tal profeta morrerá. E, se disseres no teu coração: Como conheceremos a palavra que o Senhor não falou? Quando o tal profeta falar em nome do Senhor, e tal palavra se não cumprir, nem suceder assim, esta é a palavra que o Senhor não falou; com soberba a falou o tal profeta; não tenhas temor dele."
 - 1 João 4:1: "Amados, não creiais a todo espírito, mas provai se os espíritos são de Deus, porque já muitos falsos profetas se têm levantado no mundo."
+- Apocalipse 22:18-19: "Eu testifico a todo aquele que ouvir as palavras da profecia deste livro: Se alguém lhes acrescentar alguma coisa, Deus fará vir sobre ele as pragas que estão escritas neste livro; e, se alguém tirar qualquer coisa das palavras do livro desta profecia, Deus tirará a sua parte da árvore da vida, e da cidade santa, que estão escritas neste livro."
+- 2 Pedro 1:20-21: "Sabendo primeiramente isto: que nenhuma profecia da Escritura é de particular interpretação. Porque a profecia nunca foi produzida por vontade de homem algum, mas os homens santos de Deus falaram inspirados pelo Espírito Santo."
+- João 14:26: "Mas aquele Consolador, o Espírito Santo, que o Pai enviará em meu nome, vos ensinará todas as coisas e vos fará lembrar de tudo quanto vos tenho dito."
+- Atos 17:11: "Ora, estes foram mais nobres do que os que estavam em Tessalônica, porque de bom grado receberam a palavra, examinando cada dia nas Escrituras se estas coisas eram assim."
+- Isaías 8:20: "À lei e ao testemunho! Se eles não falarem segundo esta palavra, é porque não há luz neles."
