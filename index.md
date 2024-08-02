@@ -1,4 +1,5 @@
 ### Compilado Completo de Doutrinas, Ordenanças, Práticas, Costumes e Crenças da Congregação Cristã no Brasil (CCB) e a Análise sob a Ótica da Fé Reformada
+- [1. Velho Testamento x Novo Testamento](#velho-testamento-novo-testamento)
 - [1. Salvação pela Graça e Obras](#salvacao-pela-graca-e-obras)
 - [2. Predestinação](#predestinacao-e-eleicao)
 - [3. Significado do Batismo](#significado-do-batismo)
@@ -22,6 +23,8 @@
 - [21. Evangelismo](#evangelismo)
 - [22. Ósculo Santo](#osculo-santo)
 - [23. Exclusivismo](#exclusivismo)
+
+{% include velho-testamento-novo-testamento.md %}
 
 {% include salvacao-pela-graca-e-obras.md %}
 
