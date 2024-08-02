@@ -1,13 +1,43 @@
-## Evangelismo {#evangelismo}
+### Evangelismo {#evangelismo}
 
-#### Interpretação Reformada
-A fé reformada vê o evangelismo como um mandato de Cristo para todos os crentes. A Grande Comissão é um chamado para pregar o evangelho a todas as nações, batizando e ensinando-os a guardar todas as coisas que Cristo ordenou (Mateus 28:19-20: "Portanto ide, ensinai todas as nações, batizando-as em nome do Pai, e do Filho, e do Espírito Santo; ensinando-as a guardar todas as coisas que eu vos tenho mandado; e eis que eu estou convosco todos os dias, até a consumação dos séculos. Amém.").
+#### O que a Bíblia diz
+A Bíblia ensina que o evangelismo é um mandato de Cristo para todos os crentes. A Grande Comissão é um chamado para pregar o evangelho a todas as nações, batizando e ensinando-os a guardar todas as coisas que Cristo ordenou (Mateus 28:19-20: "Portanto ide, ensinai todas as nações, batizando-as em nome do Pai, e do Filho, e do Espírito Santo; ensinando-as a guardar todas as coisas que eu vos tenho mandado; e eis que eu estou convosco todos os dias, até a consumação dos séculos. Amém.").
+
+Para os cristãos, o evangelismo é uma expressão de obediência a Cristo e do amor ao próximo. Eles creem que Deus usa a pregação da Palavra para chamar os eleitos à salvação. Romanos 10:14-15 destaca a necessidade de pregação: "Como, pois, invocarão aquele em quem não creram? E como crerão naquele de quem não ouviram? E como ouvirão, se não há quem pregue? E como pregarão, se não forem enviados? Como está escrito: Quão formosos os pés dos que anunciam o evangelho de paz; dos que trazem alegres novas de boas coisas."
+
+O evangelismo também é caracterizado pela confiança na soberania de Deus. Os crentes são chamados a proclamar o evangelho fielmente, sabendo que é Deus quem efetua a obra de salvação nos corações. Atos 1:8 reforça esta missão: "Mas recebereis a virtude do Espírito Santo, que há de vir sobre vós; e ser-me-eis testemunhas, tanto em Jerusalém como em toda a Judeia e Samaria, e até aos confins da terra."
+
+Além disso, a Bíblia enfatiza que o evangelismo deve ser acompanhado por uma vida de santidade e bom testemunho. 1 Pedro 3:15 nos exorta: "Antes, santificai a Cristo, como Senhor, em vossos corações; e estai sempre preparados para responder com mansidão e temor a qualquer que vos pedir a razão da esperança que há em vós." O testemunho de vida autêntico é uma poderosa ferramenta evangelística, complementando a pregação da Palavra.
+
+A Bíblia também ensina que o evangelismo é parte integral da missão da igreja. Marcos 16:15 registra as palavras de Jesus: "Ide por todo o mundo, pregai o evangelho a toda criatura." Este versículo, juntamente com a Grande Comissão, forma a base do compromisso com a evangelização global, buscando alcançar todas as nações e povos com a mensagem de Cristo.
+
+Apesar da crença na predestinação e eleição, a Bíblia ensina que a evangelização é uma responsabilidade essencial dos crentes. Embora Deus tenha predestinado aqueles que serão salvos, Ele ordena o meio pelo qual a salvação será alcançada – a pregação do evangelho. Em 2 Timóteo 2:10, Paulo declara: "Por isso tudo suporto por amor dos eleitos, para que também eles alcancem a salvação que está em Cristo Jesus com glória eterna." Este versículo mostra que o esforço evangelístico é necessário para que os eleitos ouçam e creiam na mensagem de salvação. A evangelização é, portanto, o meio pelo qual Deus chama os Seus eleitos à fé.
+
+Portanto, o evangelismo na perspectiva bíblica é um ato de obediência a Cristo, uma expressão de amor ao próximo, e uma confiança na soberania de Deus para chamar os Seus eleitos à salvação.
 
 #### Interpretação da CCB
-A CCB acredita no evangelismo pessoal e testemunho de vida, mas não pratica evangelizações estruturadas. Eles confiam que Deus trará as pessoas para a igreja conforme Sua vontade.
+A Congregação Cristã no Brasil (CCB) valoriza o evangelismo pessoal e o testemunho de vida dos crentes como formas principais de compartilhar o evangelho. Eles acreditam que a maneira como os membros vivem suas vidas deve refletir a transformação que Cristo opera neles, atraindo assim outras pessoas para a fé. A ênfase está em ser uma luz no mundo através de um comportamento exemplar e amoroso, conforme instruído em Mateus 5:16: "Assim resplandeça a vossa luz diante dos homens, para que vejam as vossas boas obras e glorifiquem a vosso Pai, que está nos céus."
 
-#### Contra-argumento Reformado
-A fé reformada argumenta que, embora o testemunho de vida seja crucial, a proclamação ativa do evangelho é essencial. A Grande Comissão implica em uma ação proativa de pregação e ensino.
+A CCB realiza cultos de evangelização, onde o foco é a pregação do evangelho aos visitantes e não-membros. Nessas ocasiões, os membros são encorajados a convidar amigos e familiares para ouvir a mensagem de salvação. No entanto, esses esforços geralmente não são acompanhados de um preparo formal e específico dos membros para evangelizar. A abordagem é mais baseada no testemunho pessoal e nas discussões individuais ou familiares, sem uma estrutura evangelística formal.
+
+Além disso, a CCB enfatiza o poder do testemunho pessoal como uma forma eficaz de evangelismo. Eles acreditam que quando os membros vivem de acordo com os ensinamentos de Cristo, suas vidas naturalmente atraem outros para a fé. 1 Pedro 3:1-2 ilustra esse princípio: "Semelhantemente, vós, mulheres, sede sujeitas aos vossos próprios maridos; para que também, se alguns não obedecem à palavra, pelo porte de suas mulheres sejam ganhos sem palavra, considerando a vossa vida casta, em temor."
+
+Portanto, a abordagem da CCB ao evangelismo é centrada no testemunho de vida, confiança na obra do Espírito Santo para atrair os perdidos, e a realização de cultos de evangelização para alcançar os não-crentes.
+
+#### Contra-argumento bíblico
+Embora o testemunho de vida seja crucial, a proclamação ativa do evangelho é essencial. A Grande Comissão implica em uma ação proativa de pregação e ensino. Jesus claramente instruiu os seus seguidores a irem e fazerem discípulos de todas as nações, batizando-os e ensinando-os a obedecer tudo o que Ele ordenou (Mateus 28:19-20). Este mandato não pode ser cumprido apenas por meio do testemunho de vida; é necessária uma ação intencional de pregação e ensino.
+
+Enquanto a CCB valoriza o testemunho pessoal e a oração, a Bíblia enfatiza que a pregação do evangelho é indispensável para a salvação dos eleitos. Romanos 10:14-15 destaca a importância da pregação: "Como, pois, invocarão aquele em quem não creram? E como crerão naquele de quem não ouviram? E como ouvirão, se não há quem pregue? E como pregarão, se não forem enviados?" Este versículo demonstra que a pregação é o meio pelo qual Deus chama os Seus eleitos à fé.
+
+Embora a CCB confie na soberania de Deus para trazer pessoas à igreja, a Bíblia ensina que a evangelização ativa é o meio ordenado por Deus para alcançar os perdidos. Em Atos 1:8, Jesus disse: "Mas recebereis a virtude do Espírito Santo, que há de vir sobre vós; e ser-me-eis testemunhas, tanto em Jerusalém como em toda a Judeia e Samaria, e até aos confins da terra." Este versículo destaca a responsabilidade dos crentes em serem testemunhas ativas e proclamarem o evangelho em todo o mundo.
+
+Mateus 5:16, citado pela CCB, destaca a importância de uma vida exemplar: "Assim resplandeça a vossa luz diante dos homens, para que vejam as vossas boas obras e glorifiquem a vosso Pai, que está nos céus." No entanto, este versículo não sugere que a evangelização deva se limitar ao testemunho de vida. Pelo contrário, uma vida exemplar deve complementar a proclamação verbal do evangelho, tornando o testemunho ainda mais eficaz. Da mesma forma, 1 Pedro 3:1-2, que fala sobre o poder do testemunho silencioso para ganhar os descrentes, não exclui a necessidade de proclamação verbal do evangelho. Ambos os textos destacam a importância de uma vida piedosa, mas não em detrimento da pregação ativa.
+
+A tensão entre a crença na eleição e o mandato de evangelizar é vista como um aspecto do mistério da soberania de Deus. Embora Deus tenha predestinado os eleitos para a salvação, Ele ordena que a pregação do evangelho seja o meio pelo qual essa salvação é realizada. Esta aparente contradição é compreendida como uma parte do plano divino, onde a soberania de Deus e a responsabilidade humana trabalham juntas para cumprir Seu propósito.
+
+Por outro lado, a abordagem da CCB pode ter uma contradição negativa: ao não acreditar na predestinação e ao mesmo tempo não praticar uma evangelização estruturada e proativa, pode-se questionar a eficácia em cumprir o mandato bíblico de evangelizar. A ausência de um preparo formal e de uma estrutura evangelística pode limitar a capacidade de alcançar efetivamente os perdidos com a mensagem do evangelho.
+
+Portanto, enquanto o testemunho de vida e a oração são componentes essenciais do evangelismo, a Bíblia insiste que a pregação ativa do evangelho é indispensável para cumprir a Grande Comissão e alcançar os perdidos com a mensagem de salvação em Cristo.
 
 #### Referências Bíblicas
 - Mateus 28:19-20: "Portanto ide, ensinai todas as nações, batizando-as em nome do Pai, e do Filho, e do Espírito Santo; ensinando-as a guardar todas as coisas que eu vos tenho mandado; e eis que eu estou convosco todos os dias, até a consumação dos séculos. Amém."
@@ -15,3 +45,6 @@ A fé reformada argumenta que, embora o testemunho de vida seja crucial, a procl
 - Marcos 16:15: "E disse-lhes: Ide por todo o mundo, pregai o evangelho a toda criatura."
 - Atos 1:8: "Mas recebereis a virtude do Espírito Santo, que há de vir sobre vós; e ser-me-eis testemunhas, tanto em Jerusalém como em toda a Judeia e Samaria, e até aos confins da terra."
 - 1 Pedro 3:15: "Antes, santificai a Cristo, como Senhor, em vossos corações; e estai sempre preparados para responder com mansidão e temor a qualquer que vos pedir a razão da esperança que há em vós."
+- 1 Pedro 3:1-2: "Semelhantemente, vós, mulheres, sede sujeitas aos vossos próprios maridos; para que também, se alguns não obedecem à palavra, pelo porte de suas mulheres sejam ganhos sem palavra, considerando a vossa vida casta, em temor."
+- 1 Timóteo 2:1-4: "Admoesto-te, pois, antes de tudo, que se façam deprecações, orações, intercessões, e ações de graças, por todos os homens; pelos reis, e por todos os que estão em eminência, para que tenhamos uma vida quieta e sossegada, em toda a piedade e honestidade. Porque isto é bom e agradável diante de Deus nosso Salvador, que quer que todos os homens se salvem, e venham ao conhecimento da verdade."
+- 2 Timóteo 2:10: "Por isso tudo suporto por amor dos eleitos, para que também eles alcancem a salvação que está em Cristo Jesus com glória eterna."
