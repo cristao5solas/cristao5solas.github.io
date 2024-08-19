@@ -72,7 +72,7 @@ Além disso, em Romanos 9:11-13, Paulo declara: "Porque, não tendo eles ainda n
 
 Agora, vamos considerar a eleição condicional, uma doutrina que sustenta que Deus escolhe para a salvação aqueles que Ele sabe, em Sua presciência, que responderão à Sua oferta de graça com fé. Segundo essa visão, a eleição está condicionada à resposta humana. Essa doutrina baseia-se em três pilares principais: a presciência de Deus, a responsabilidade humana e o livre arbítrio, e a graça preveniente. Vamos examinar cada um desses pilares e como eles se harmonizam ou não com as Escrituras.
 
-##### Presciência de Deus
+#### Presciência de Deus
 
 A eleição condicional argumenta que Deus, em Sua presciência, conhece de antemão quem, ao ouvir o evangelho, responderá positivamente à Sua oferta de salvação. 1 Pedro 1:2 é frequentemente citado: "Eleitos segundo a presciência de Deus Pai, em santificação do Espírito, para a obediência e aspersão do sangue de Jesus Cristo: Graça e paz vos sejam multiplicadas." A ideia é que essa "presciência" refere-se ao conhecimento prévio de Deus sobre a fé futura dos crentes.
 
@@ -82,7 +82,7 @@ Além disso, Atos 13:48 afirma: "E creram todos quantos estavam ordenados para a
 
 **Síntese e Crítica à Presciência Condicional**: Entender a presciência de Deus como simples previsão de escolhas humanas futuras entra em conflito com a soberania divina, pois transforma Deus de um planejador soberano em um mero registrador das decisões humanas. Essa visão diminui a autoridade e o controle de Deus, sugerindo que a eleição depende da vontade humana em vez de ser determinada pela vontade soberana de Deus. Em contraste, a interpretação exegética das Escrituras revela que a presciência de Deus envolve Seu conhecimento íntimo e relacional, que é inseparável de Sua soberana decisão de eleger aqueles que serão salvos.
 
-##### Responsabilidade Humana e Livre Arbítrio
+#### Responsabilidade Humana e Livre Arbítrio
 
 Outra pedra de toque da eleição condicional é a crença de que Deus respeita a liberdade humana e que a eleição está condicionada à resposta de fé do indivíduo. João 3:16 é frequentemente citado: "Porque Deus amou o mundo de tal maneira que deu o seu Filho unigênito, para que todo aquele que nele crê não pereça, mas tenha a vida eterna." Aqui, a ênfase em "todo aquele que nele crê" parece sugerir que a fé individual é o fator determinante na eleição.
 
@@ -92,7 +92,7 @@ João 6:44 também apoia essa visão: "Ninguém pode vir a mim, se o Pai que me 
 
 Paulo, em 1 Coríntios 13:12, reconhece a existência de mistérios que não podemos compreender completamente: "Porque agora vemos por espelho em enigma, mas então veremos face a face; agora conheço em parte, mas então conhecerei como também sou conhecido." Aqui, Paulo admite que existem aspectos do plano de Deus que são mistérios para nós, incluindo a maneira como a responsabilidade humana e a soberania divina se harmonizam na eleição.
 
-##### Graça Preveniente e Depravação Total
+#### Graça Preveniente e Depravação Total
 
 A doutrina da graça preveniente sugere que Deus concede a todos os seres humanos uma medida de graça que lhes permite responder ao evangelho. Tito 2:11 é frequentemente citado: "Porque a graça de Deus se há manifestado, trazendo salvação a todos os homens." A interpretação que propõe que "todos os homens" significa que a salvação é potencialmente acessível a todos se baseia em uma leitura superficial.
 
@@ -106,7 +106,7 @@ Além disso, ao afirmar que "todos os homens" têm essa capacidade, devemos cons
 
 Em resumo, a ideia de graça preveniente, como comumente entendida, está em desacordo com a doutrina da depravação total. Ela minimiza a gravidade da condição humana caída e a necessidade de uma graça eficaz que não apenas convida, mas efetivamente transforma e traz o pecador à fé em Cristo. A salvação, portanto, é inteiramente uma obra da graça soberana de Deus, que escolhe, chama e capacita os eleitos a responderem ao evangelho de maneira que, sem essa intervenção divina, seria impossível.
 
-##### Considerações Sobre a "Eleição Aberta"
+#### Considerações Sobre a "Eleição Aberta"
 
 Alguns sugerem que, embora Deus predestine certos indivíduos para a salvação, Ele também deixa aberta a possibilidade de que outros possam escolher aceitar a salvação por sua própria vontade, sem serem predestinados. Essa ideia implica que a predestinação é apenas para um grupo seleto, enquanto outros podem alcançar a salvação através de seu livre arbítrio, sem uma eleição prévia.
 
