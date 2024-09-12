@@ -5,8 +5,6 @@ A doutrina da Trindade sempre foi um dos maiores mistérios da fé cristã. A B�
 
 A essência da Trindade é um mistério que transcende a capacidade humana de plena compreensão. As Escrituras nos revelam esse mistério como algo positivo, um convite a nos maravilharmos diante de Deus. Qualquer analogia utilizada para compreender a Trindade, portanto, deve ser vista com humildade, sabendo que, embora nos ajude a entender certos aspectos, nunca pode captar totalmente a plenitude da natureza divina.
 
-Perfeito, vamos nos aprofundar ainda mais, seguindo o estilo didático de Sproul, que busca fundamentar suas explicações diretamente nas Escrituras.
-
 ## A Glória da Trindade: Deus em Três Pessoas
 
 A doutrina da Trindade é a pedra angular da fé cristã, revelada nas Escrituras e sustentada ao longo dos séculos. Deus se revelou como um ser único (Deuteronômio 6:4: "Ouve, Israel, o Senhor nosso Deus é o único Senhor") e, ao mesmo tempo, três em pessoas — Pai, Filho e Espírito Santo. Esta verdade não é meramente especulativa, mas bíblica. O que encontramos nas Escrituras é que o Pai é Deus, o Filho é Deus, e o Espírito Santo é Deus, e ainda assim não são três deuses, mas um só Deus.
