@@ -1,18 +1,24 @@
 # **4) Panorama Bíblico: A História da Redenção**  
 
-A Bíblia não é apenas um livro antigo ou uma coleção de textos religiosos. **Ela é a revelação progressiva de Deus à humanidade, desvendando, ao longo da história, o plano divino de redenção.**  
+A Bíblia não é um livro comum. **Ela é a revelação de Deus à humanidade, inspirada pelo Espírito Santo e escrita ao longo de séculos.**  
 
-Muitos olham para a Bíblia e a veem como um livro fragmentado, cheio de histórias desconectadas. Mas a verdade é que **a Escritura tem uma narrativa única e coesa, escrita por um único Autor, conduzindo a um único propósito: a glorificação de Deus através da redenção em Cristo.**  
+Diferente de qualquer outro livro religioso, a Bíblia não é fruto de uma única mente humana. **Ela foi escrita por aproximadamente 40 autores diferentes, em um período de cerca de 1.500 anos (~1500 a.C. a ~100 d.C.), em três idiomas distintos (hebraico, aramaico e grego), abrangendo culturas, impérios e gerações diferentes.**  
 
-Cada página, cada profecia, cada evento registrado nas Escrituras está **tecendo um grande enredo**, desde a Criação até a Consumação Final. Se não compreendermos esse panorama, perderemos a beleza e a profundidade do que Deus está fazendo na história.  
+E, mesmo assim, **toda a Bíblia tem uma única mensagem central**:  
 
-Jesus deixou isso claro quando, após Sua ressurreição, explicou aos discípulos o verdadeiro significado das Escrituras:  
+> **Deus criou todas as coisas, o homem caiu em pecado e Deus providenciou redenção em Cristo.**  
 
-> **"E, começando por Moisés, discorrendo por todos os Profetas, expunha-lhes o que a seu respeito constava em todas as Escrituras."** (Lucas 24:27)  
+Como isso é possível? Porque **por trás de cada palavra humana havia um único Autor divino – o Espírito Santo.**  
 
-Cristo é **o centro da história**. O Antigo Testamento **prepara o caminho para Ele**. O Novo Testamento **revela Sua obra e Seu reino**. A Bíblia não é um livro sobre religião – **é um livro sobre Deus e Seu plano para a humanidade.**  
+> **"Toda a Escritura é inspirada por Deus e útil para o ensino, para a repreensão, para a correção e para a instrução na justiça."** (2 Timóteo 3:16)  
 
-Vamos explorar essa história e entender como ela se desenrola ao longo das Escrituras.  
+A Bíblia não contém apenas partes inspiradas – **toda ela é inspirada, sem erro e totalmente confiável.**  
+
+Jesus deixou isso claro ao dizer:  
+
+> **"A Escritura não pode falhar."** (João 10:35)  
+
+Neste estudo, veremos **como a Bíblia está organizada, qual sua grande narrativa e como tudo aponta para Cristo.**  
 
 ---
 
@@ -116,4 +122,4 @@ A Bíblia **não é um livro sobre o passado** – **ela é sobre Deus, sobre Cr
 
 Se quisermos conhecer a Deus, **precisamos mergulhar nessa história e vivê-la**.  
 
-No próximo estudo, veremos **como Deus continuou agindo ao longo da História da Igreja**.  
+No próximo estudo, veremos [**um panorama sobre o antigo testamento**](antigo-testamento.md).  
