@@ -107,4 +107,4 @@ O Pentateuco **não é apenas um relato histórico – ele é a base da revelaç
 
 Se quisermos entender **o evangelho e a cruz**, precisamos começar **pela Lei e pela Aliança que Deus estabeleceu desde o princípio.**  
 
-No próximo estudo, veremos **os Livros Históricos**, que mostram como Deus conduziu Seu povo ao longo da história.  
+No próximo estudo, veremos [**os Livros Históricos**](historicos.md), que mostram como Deus conduziu Seu povo ao longo da história.  
