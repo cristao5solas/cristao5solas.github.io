@@ -126,4 +126,4 @@ Deus convida você **a se aproximar d’Ele** e viver um relacionamento real.
 
 Se queremos crescer na fé, **precisamos nos conectar com Deus em oração diariamente**.  
 
-No próximo estudo, veremos **como a Bíblia está organizada e como ela revela o plano de Deus do início ao fim**.  
+No próximo estudo, veremos [**como a Bíblia está organizada e como ela revela o plano de Deus do início ao fim**](panorama-biblico.md).  
