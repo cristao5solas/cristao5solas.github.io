@@ -94,4 +94,4 @@ Agora que entendemos que a Bíblia é a Palavra de Deus, devemos refletir sobre 
 
 Se Deus nos deu Sua Palavra para nos guiar, então o primeiro passo para crescer na fé é **conhecê-la e confiar nela**.  
 
-No próximo estudo, veremos **como nos relacionamos com Deus através da oração e da comunhão com Ele**.  
+No próximo estudo, veremos [**como nos relacionamos com Deus através da oração e da comunhão com Ele**](oracao-e-comunhao.md).  

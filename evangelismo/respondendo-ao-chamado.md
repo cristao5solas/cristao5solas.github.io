@@ -124,4 +124,4 @@ A salvação é um dom gratuito, mas exige **uma resposta genuína**.
 
 Se você ainda não tomou uma decisão real por Cristo, **não adie isso**.  
 
-No próximo estudo, veremos **a segurança da salvação e como saber se realmente fomos regenerados por Deus**.  
+No próximo estudo, exploraremos [**a autoridade da Bíblia e as razões pelas quais podemos confiar nela**](autoridade-biblica.md).

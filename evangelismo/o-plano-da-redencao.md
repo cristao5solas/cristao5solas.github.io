@@ -138,4 +138,4 @@ Isso significa que **a justiça de Deus foi satisfeita na cruz**, e agora **a ú
 
 Mas isso nos leva a uma pergunta essencial: **como devemos responder a essa verdade?**  
 
-No próximo estudo, veremos **como o homem deve responder ao evangelho e o que significa viver pela fé em Cristo**.  
+No próximo estudo, veremos [**como o homem deve responder ao evangelho e o que significa viver pela fé em Cristo**](respondendo-ao-chamado.md).

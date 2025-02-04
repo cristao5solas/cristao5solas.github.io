@@ -102,7 +102,7 @@ Se parássemos aqui, a situação seria desesperadora. Mas a boa notícia é que
 
 A resposta para o nosso estado pecaminoso **não está dentro de nós**, mas **fora de nós – em Cristo**.  
 
-No próximo estudo, veremos **como Deus providenciou redenção através de Jesus Cristo e qual deve ser nossa resposta.**  
+No próximo estudo, veremos [**como Deus providenciou redenção através de Jesus Cristo e qual deve ser nossa resposta.**](o-plano-da-redencao.md)  
 
 ---
 

@@ -16,4 +16,4 @@ O evangelho **não é apenas uma mensagem religiosa**. Ele é a resposta divina 
 
 Se o evangelho é realmente a melhor notícia já anunciada, então entendê-lo corretamente não é apenas útil, mas **absolutamente necessário**.  
 
-Vamos, então, começar do princípio: **Quem é Deus?**  
+Vamos, então, começar do princípio: [**Quem é Deus?**](quem-e-deus.md)  

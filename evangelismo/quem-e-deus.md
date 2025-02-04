@@ -67,4 +67,4 @@ Diante dessa realidade, **ninguém pode ser indiferente** a Deus. Se Ele é o Cr
 
 A pergunta que devemos fazer não é **"o que eu penso sobre Deus?"**, mas **"quem Deus realmente é e como devo me relacionar com Ele?"**.  
 
-No próximo estudo, veremos a condição do homem diante desse Deus santo e justo.  
+No próximo estudo, veremos a [condição do homem diante desse Deus santo e justo](condicao-humana.md).  
