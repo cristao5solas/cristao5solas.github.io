@@ -101,10 +101,41 @@ Isso significa que:
 
 ---
 
-## **Conclusão: Como Você Responderá a Essa Verdade?**  
+## **3.6 Reflexão: Você Compreende o Preço Que Cristo Pagou?**  
 
-A obra de Cristo na cruz **não é apenas uma história bonita** – **é a única esperança para a humanidade**.  
+Agora que entendemos que Cristo morreu como nosso substituto, devemos parar e refletir: **por que esse sacrifício foi necessário?**  
 
-> **"Arrependei-vos e crede no evangelho."** (Marcos 1:15)  
+Se Deus é justo, Ele **não pode deixar nenhum pecado impune**. Pense em **tudo o que você já fez contra Deus e contra outras pessoas**. Pense nas vezes em que:  
+
+- Você mentiu para se beneficiar.  
+- Você tratou alguém com arrogância ou desprezo.  
+- Você foi injusto com alguém, sabendo que estava errado.  
+- Você falou mal de uma pessoa pelas costas.  
+- Você alimentou pensamentos impuros ou invejosos.  
+- Você ignorou Deus e viveu como se Ele não existisse.  
+
+Se fôssemos expostos completamente diante de Deus, **o que mereceríamos?**  
+
+> **"Porque o salário do pecado é a morte."** (Romanos 6:23)  
+
+Agora imagine estar **diante do tribunal de Deus**, e Ele, o Juiz perfeito, **expor cada um de seus pecados, um por um**. Como você poderia se justificar?  
+
+A verdade é que **não há defesa**. O veredito é claro: **culpado**. E a sentença seria **a ira de Deus e a condenação eterna**.  
+
+Mas é exatamente neste ponto que **a cruz de Cristo se torna gloriosa**.  
+
+Cristo **não foi forçado** a morrer por você. Ele **voluntariamente se ofereceu** para pagar o preço no seu lugar.  
+
+> **"Ninguém tira a minha vida de mim, pelo contrário, eu espontaneamente a dou."** (João 10:18)  
+
+Ele olhou para cada pecado que você já cometeu e **escolheu sofrer por eles em seu lugar**.  
+
+Ele foi humilhado, torturado, pregado em uma cruz e abandonado para que **você não precisasse ser condenado**.  
+
+> **"Cristo morreu por nós, sendo nós ainda pecadores."** (Romanos 5:8)  
+
+Isso significa que **a justiça de Deus foi satisfeita na cruz**, e agora **a única coisa que resta para você fazer é crer e receber essa graça**.  
+
+Mas isso nos leva a uma pergunta essencial: **como devemos responder a essa verdade?**  
 
 No próximo estudo, veremos **como o homem deve responder ao evangelho e o que significa viver pela fé em Cristo**.  
