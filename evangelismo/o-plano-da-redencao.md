@@ -1,87 +1,76 @@
 # **3) O Que Cristo Fez: A Redenção e a Obra da Cruz**  
 
-Nos estudos anteriores, vimos que **Deus é santo e justo**, e que **o homem é pecador e incapaz de se salvar**. Isso cria um problema profundo: **como um Deus santo pode perdoar pecadores sem comprometer Sua justiça?**  
+Nos estudos anteriores, vimos que **Deus é santo e justo**, e que **o homem é pecador e incapaz de se salvar**. Essa realidade nos coloca diante de um problema profundo: **se Deus é perfeito e justo, como Ele pode perdoar pecadores sem comprometer Sua justiça?**  
 
-Muitas pessoas acreditam que Deus pode simplesmente ignorar o pecado, como se perdoar fosse algo automático. Mas isso **seria injusto**. Um juiz humano que ignora crimes **não é um bom juiz**. Deus, sendo perfeito, **não pode simplesmente perdoar sem que a justiça seja satisfeita**.  
+Muitas pessoas acreditam que Deus pode simplesmente ignorar o pecado, como se o perdão fosse algo automático. Mas isso **seria injusto**. Imagine um juiz humano diante de um criminoso culpado de vários crimes. Se esse juiz apenas dissesse "está tudo bem, vou te perdoar", sem aplicar nenhuma punição, ele estaria sendo justo? Obviamente não. Da mesma forma, **Deus, sendo um juiz perfeito, não pode simplesmente ignorar o pecado sem que a justiça seja satisfeita**.  
 
-A resposta para esse dilema está na **obra redentora de Jesus Cristo**.  
+A resposta para esse dilema está na **obra redentora de Jesus Cristo**. Na cruz, Deus revelou tanto **Seu amor** quanto **Sua justiça**. Ele não ignorou o pecado, mas puniu Cristo em nosso lugar, para que, por meio d’Ele, pudéssemos ser reconciliados com Deus.  
 
 ---
 
 ## **3.1 O Plano de Deus para a Redenção**  
 
-Desde antes da criação, Deus já havia determinado um plano para salvar pecadores **sem comprometer Sua justiça**.  
+Desde antes da fundação do mundo, Deus já havia determinado um plano para salvar pecadores **sem comprometer Sua justiça**. Esse plano envolvia a vinda de um Salvador, que seria ao mesmo tempo **plenamente Deus e plenamente homem**, capaz de cumprir a justiça divina e morrer como substituto dos pecadores.  
 
-> **"Ele nos escolheu nele antes da fundação do mundo."** (Efésios 1:4)  
+> **"Nele fomos também escolhidos, tendo sido predestinados conforme o plano daquele que faz todas as coisas segundo o propósito da sua vontade."** (Efésios 1:11)  
 
-O plano envolvia a vinda de um Salvador que:  
-- **Seria plenamente Deus e plenamente homem** (Colossenses 2:9, João 1:14).  
-- **Viveria uma vida sem pecado** (Hebreus 4:15).  
-- **Morreria no lugar dos pecadores** (Isaías 53:5).  
-- **Ressuscitaria, vencendo a morte** (1 Coríntios 15:3-4).  
-
-Cristo não foi **uma alternativa de última hora**. Desde o início, Ele foi o centro do plano de Deus.  
+O plano da redenção não foi um improviso, nem uma alternativa de última hora. Desde o início, Cristo estava no centro da história da salvação.  
 
 > **"O Cordeiro que foi morto desde a fundação do mundo."** (Apocalipse 13:8)  
+
+Deus não apenas **sabia** que o homem pecaria, mas já havia determinado **como resgatá-lo**. E esse resgate foi cumprido em Cristo.  
 
 ---
 
 ## **3.2 Jesus: O Deus que Se Fez Homem**  
 
-Para salvar o homem, **Deus Se fez homem**.  
+Para que a redenção fosse possível, era necessário que o Salvador fosse **verdadeiramente humano**, para representar os homens, e **verdadeiramente Deus**, para ser um sacrifício perfeito e infinito.  
+
+A Bíblia ensina que Jesus Cristo é **Deus encarnado**, o Verbo que se fez carne e habitou entre nós:  
 
 > **"No princípio era o Verbo, e o Verbo estava com Deus, e o Verbo era Deus. [...] E o Verbo se fez carne e habitou entre nós."** (João 1:1,14)  
 
-Isso significa que Jesus:  
-- **Não foi apenas um mestre ou profeta** – Ele é Deus encarnado.  
-- **Não nasceu em pecado** – Foi concebido pelo Espírito Santo (Mateus 1:20).  
-- **Veio para cumprir a Lei perfeitamente** – Algo que nenhum outro homem conseguiu (Mateus 5:17).  
+Isso significa que Cristo não foi apenas um profeta ou um grande mestre. Ele é **o próprio Deus**, que se humilhou ao assumir a forma humana (Filipenses 2:6-7).  
 
-Somente um **homem perfeito** poderia pagar pelos pecados dos homens. E somente um **Deus infinito** poderia oferecer um sacrifício de valor infinito.  
+Além disso, Jesus foi **concebido pelo Espírito Santo**, sem a natureza pecaminosa herdada de Adão (Lucas 1:35). Ele viveu **uma vida sem pecado**, cumprindo perfeitamente toda a Lei de Deus (Mateus 5:17). Nenhum outro homem jamais conseguiu isso.  
 
-Cristo é **perfeito em Sua humanidade e perfeito em Sua divindade**.  
+Por essa razão, **Ele era o único capaz de pagar o preço pelos pecados da humanidade**. Nenhum sacrifício humano seria suficiente. Apenas um sacrifício perfeito, de valor infinito, poderia satisfazer a justiça de Deus.  
 
 ---
 
 ## **3.3 A Cruz: O Centro da Redenção**  
 
-A morte de Jesus **não foi um acidente** – era o propósito de Sua vinda.  
+O ponto culminante da missão de Cristo foi Sua morte na cruz. Esse não foi um evento inesperado ou uma tragédia sem propósito. Desde o início, Jesus sabia que Sua missão era morrer pelos pecadores.  
 
 > **"O Filho do Homem não veio para ser servido, mas para servir e dar a sua vida em resgate por muitos."** (Marcos 10:45)  
 
 Mas por que a cruz era necessária?  
 
-### **3.3.1 Substituição: Cristo Morreu em Nosso Lugar**  
+### **3.3.1 A Substituição: Cristo Morreu em Nosso Lugar**  
 
-O pecado exige punição. Em toda a Bíblia, a consequência do pecado sempre foi **morte**.  
+A Bíblia ensina que **o pecado exige punição**. Desde o Antigo Testamento, Deus estabeleceu que **o preço do pecado é a morte**:  
 
 > **"O salário do pecado é a morte."** (Romanos 6:23)  
 
-Mas Deus, em Seu amor, providenciou um substituto. No Antigo Testamento, **sacrifícios de animais eram oferecidos pelo pecado do povo**. Mas esses sacrifícios **eram apenas símbolos temporários**, apontando para o verdadeiro Cordeiro de Deus.  
+No Antigo Testamento, os sacerdotes ofereciam sacrifícios de animais pelos pecados do povo. Mas esses sacrifícios eram **temporários e simbólicos**, apontando para o sacrifício definitivo que viria em Cristo.  
 
-Jesus é o **sacrifício definitivo**, o Cordeiro que tira o pecado do mundo (João 1:29).  
+Jesus é o **Cordeiro de Deus**, que morreu como nosso substituto:  
 
 > **"Ele foi ferido por causa das nossas transgressões e moído por causa das nossas iniquidades; o castigo que nos traz a paz estava sobre ele, e pelas suas pisaduras fomos sarados."** (Isaías 53:5)  
 
-Cristo tomou sobre Si a culpa que era **nossa**. **Nós deveríamos estar naquela cruz.**  
+Na cruz, **Cristo tomou sobre Si a culpa que era nossa**. **Nós deveríamos estar ali**, mas Ele assumiu nosso lugar.  
 
 ---
 
-### **3.3.2 Propiciação: A Ira de Deus Foi Satisfeita**  
+### **3.3.2 A Propiciação: A Ira de Deus Foi Satisfeita**  
 
-Se Deus é justo, Ele **não pode deixar o pecado impune**. A cruz foi o momento em que a ira de Deus **foi derramada sobre Cristo, em nosso lugar**.  
-
-> **"Agradou ao Senhor moê-lo, fazendo-o enfermar."** (Isaías 53:10)  
+Se Deus é justo, Ele **não pode deixar o pecado impune**. Na cruz, Cristo recebeu a punição que nós merecíamos.  
 
 > **"Cristo nos resgatou da maldição da lei, fazendo-se ele próprio maldição em nosso lugar."** (Gálatas 3:13)  
 
-Isso significa que **toda a punição que merecíamos caiu sobre Ele**. Deus não ignorou o pecado – **Ele o puniu em Cristo**.  
+Isso significa que **a ira de Deus foi satisfeita em Cristo**. Deus não ignorou o pecado – Ele o puniu na pessoa de Seu Filho.  
 
-Quando Jesus gritou na cruz:  
-
-> **"Está consumado!"** (João 19:30)  
-
-Ele estava declarando que **a obra da salvação estava completa**. O preço foi pago.  
+Quando Jesus declarou na cruz **"Está consumado!"** (João 19:30), Ele estava afirmando que **o preço foi pago por completo**. A justiça de Deus foi cumprida.  
 
 ---
 
@@ -89,21 +78,17 @@ Ele estava declarando que **a obra da salvação estava completa**. O preço foi
 
 Se Jesus tivesse morrido e permanecido no túmulo, Sua morte não teria valor. Mas Ele **ressuscitou ao terceiro dia**, provando que:  
 
-- **Ele era realmente o Filho de Deus** (Romanos 1:4).  
+- **Ele é verdadeiramente o Filho de Deus** (Romanos 1:4).  
 - **Seu sacrifício foi aceito por Deus** (Romanos 4:25).  
 - **Ele venceu a morte, garantindo vida eterna para os que creem** (1 Coríntios 15:20-22).  
 
-A ressurreição **é a maior prova de que Cristo é o único Salvador**.  
-
-> **"Se Cristo não ressuscitou, é vã a nossa fé."** (1 Coríntios 15:17)  
-
-Mas Ele ressuscitou – e hoje **Ele vive e reina!**  
+A ressurreição não foi apenas um evento histórico – **foi a maior prova de que Jesus é o único Salvador**.  
 
 ---
 
 ## **3.5 Jesus é o Único Caminho**  
 
-Muitas pessoas acreditam que “todos os caminhos levam a Deus”. Mas isso contradiz totalmente o que Jesus ensinou.  
+Muitas pessoas acreditam que há vários caminhos para Deus, mas Jesus foi claro:  
 
 > **"Eu sou o caminho, e a verdade, e a vida; ninguém vem ao Pai senão por mim."** (João 14:6)  
 
@@ -114,21 +99,12 @@ Isso significa que:
 
 **Somente Jesus Cristo é o caminho para Deus.**  
 
-> **"E não há salvação em nenhum outro; porque abaixo do céu não existe nenhum outro nome dado entre os homens pelo qual importa que sejamos salvos."** (Atos 4:12)  
-
 ---
 
-## **Conclusão: O Que Você Fará com Essa Verdade?**  
+## **Conclusão: Como Você Responderá a Essa Verdade?**  
 
 A obra de Cristo na cruz **não é apenas uma história bonita** – **é a única esperança para a humanidade**.  
 
-Agora, a pergunta que resta é: **o que você fará com essa verdade?**  
-
-- Você continuará tentando se justificar diante de Deus com suas próprias obras?  
-- Ou você reconhecerá sua incapacidade e colocará sua fé exclusivamente em Cristo?  
-
 > **"Arrependei-vos e crede no evangelho."** (Marcos 1:15)  
-
-A salvação **é um presente gratuito** – mas exige **arrependimento e fé**.  
 
 No próximo estudo, veremos **como o homem deve responder ao evangelho e o que significa viver pela fé em Cristo**.  
