@@ -229,4 +229,4 @@ Se quisermos conhecer **o caráter de Deus e o plano da redenção**, devemos ou
 - **O chamado ao arrependimento continua sendo essencial hoje. Como você responde a isso?**  
 - **Como a soberania de Deus demonstrada nos profetas fortalece sua fé?**  
 
-No próximo estudo, veremos **os Evangelhos, onde Cristo, o cumprimento de todas as profecias, finalmente se revela ao mundo.**  
+No próximo estudo, veremos **o [Novo Testamento](novo-testamento), os Evangelhos, onde Cristo, o cumprimento de todas as profecias, finalmente se revela ao mundo.**  
