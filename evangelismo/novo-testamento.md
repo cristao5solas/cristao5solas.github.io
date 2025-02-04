@@ -134,4 +134,4 @@ O Novo Testamento é **a revelação final de Deus em Cristo**, ensinando que:
 - **Saber que Cristo é o cumprimento de todas as promessas fortalece sua fé?**  
 - **Como essa compreensão pode transformar sua maneira de ler a Bíblia?**  
 
-Agora que temos essa visão geral, seguimos para **os Evangelhos, onde a vida de Cristo é revelada em sua plenitude.**  
+Agora que temos essa visão geral, seguimos para **os [Evangelhos](evangelhos.md), onde a vida de Cristo é revelada em sua plenitude.**  
