@@ -82,16 +82,16 @@ Se a Bíblia é a Palavra de Deus, isso exige uma resposta de nossa parte.
 
 ---
 
-## **Conclusão: A Bíblia é Sua Autoridade Final?**  
+## **Conclusão: A Bíblia é Realmente a Palavra de Deus?**  
 
-Agora que entendemos que a Bíblia é a Palavra de Deus, devemos fazer uma autoanálise:  
+Agora que entendemos que a Bíblia é a Palavra de Deus, devemos refletir sobre o que isso significa:  
 
-- Você confia plenamente na Bíblia como sua única regra de fé e prática?  
-- Você se submete à autoridade da Palavra, ou filtra suas crenças de acordo com suas opiniões?  
-- Sua vida reflete um compromisso real com as Escrituras?  
+- **Você já tinha entendido que a Bíblia é a Palavra de Deus? Isso faz sentido para você?**  
+- **Saber que Deus falou conosco através da Bíblia desperta em você o desejo de conhecê-la mais?**  
+- **Se a Bíblia é realmente a Palavra de Deus, quais passos você pode dar para começar a estudá-la com seriedade?**  
 
 > **"Se vós permanecerdes na minha palavra, verdadeiramente sois meus discípulos."** (João 8:31)  
 
-Se a Bíblia é de fato a Palavra de Deus, então **ela deve governar nossa vida, nossas decisões e nossa fé**.  
+Se Deus nos deu Sua Palavra para nos guiar, então o primeiro passo para crescer na fé é **conhecê-la e confiar nela**.  
 
 No próximo estudo, veremos **como nos relacionamos com Deus através da oração e da comunhão com Ele**.  
