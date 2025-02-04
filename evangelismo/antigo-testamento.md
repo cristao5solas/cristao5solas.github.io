@@ -110,4 +110,4 @@ O Antigo Testamento **não é apenas uma parte antiga da Bíblia – ele é a ba
 
 O Antigo Testamento **não é um livro distante de nós – ele é a nossa história, a história de como Deus preparou o caminho para nossa salvação.**  
 
-No próximo estudo, entraremos no **Pentateuco**, os primeiros cinco livros da Bíblia, onde Deus estabeleceu Sua aliança com Seu povo.  
+No próximo estudo, entraremos no [**Pentateuco**](pentateuco.md), os primeiros cinco livros da Bíblia, onde Deus estabeleceu Sua aliança com Seu povo.  
