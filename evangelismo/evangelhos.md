@@ -128,4 +128,32 @@ Embora relatem os mesmos eventos centrais, cada Evangelho **organiza os fatos de
 
 ---
 
-Agora os **Evangelhos estão mais completos e teológicos**. Podemos seguir para **Atos dos Apóstolos**? 🚀  
+## **11.4 Como os Evangelhos Apontam para Cristo?**  
+
+📖 **Cada Evangelho revela uma faceta única de Jesus, mas juntos, formam um quadro completo da Sua glória.**  
+
+🔹 **Mateus** → Jesus é o Rei, o cumprimento das promessas messiânicas.  
+🔹 **Marcos** → Jesus é o Servo, que veio para dar Sua vida.  
+🔹 **Lucas** → Jesus é o Salvador, acessível a todos.  
+🔹 **João** → Jesus é Deus, a fonte da vida eterna.  
+
+> **"E estas coisas foram escritas para que creiais que Jesus é o Cristo, o Filho de Deus, e para que, crendo, tenhais vida em Seu nome."** (João 20:31)  
+
+Cristo **não é apenas um personagem dos Evangelhos—Ele é o próprio centro da história da redenção**.  
+
+---
+
+## **Conclusão: O Que Aprendemos com os Evangelhos?**  
+
+Os Evangelhos nos ensinam que:  
+
+📖 **Jesus é o cumprimento de todas as profecias bíblicas.**  
+📖 **Ele é o Messias prometido e o único caminho para Deus.**  
+📖 **Sua vida, morte e ressurreição são o centro da fé cristã.**  
+📖 **Seguir a Cristo significa crer n’Ele, obedecer Seus ensinamentos e proclamá-Lo ao mundo.**  
+
+- **Você já percebeu como cada Evangelho apresenta Cristo de maneira única?**  
+- **Saber que os Evangelhos foram escritos para públicos diferentes fortalece sua confiança na autenticidade do Novo Testamento?**  
+- **Como você pode aplicar os ensinamentos de Cristo à sua vida diária?**  
+
+Agora seguimos para **[Atos dos Apóstolos](atos.md), onde vemos o impacto da ressurreição de Cristo e a expansão do Evangelho pelo mundo.**  
