@@ -97,7 +97,7 @@ Após a Reforma, muitos países adotaram versões do Protestantismo ligadas ao E
 Atualmente, existem **cinco grandes distorções** no evangelicalismo moderno:  
 
 1️⃣ **A Teologia Liberal**, que **racionaliza a fé ao ponto de esvaziá-la do seu conteúdo sobrenatural**.  
-2️⃣ **O Movimento Carismático Extremo**, que **coloca a experiência subjetiva acima da Escritura**.  
+2️⃣ **O Movimento Carismático/Pentecostal**, que **coloca a experiência emocional subjetiva acima da Escritura**.  
 3️⃣ **A Teologia da Prosperidade**, que **reduz o Evangelho a um meio de enriquecimento material**.  
 4️⃣ **O Ecumenismo Relativista**, que **nega a exclusividade do Evangelho em nome da unidade religiosa**.  
 5️⃣ **O Legalismo**, que **transforma a fé cristã em um sistema de regras humanas, esvaziando a graça do Evangelho**.  
