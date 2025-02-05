@@ -108,4 +108,4 @@ A Igreja Apostólica lançou os fundamentos da fé cristã:
 
 ---
 
-**No próximo estudo, veremos o período da Igreja Primitiva e as perseguições do Império Romano (100-313 d.C.).** 🔥📖  
+**No próximo estudo, veremos o período da [Igreja Primitiva](igreja-primitiva.md) e as perseguições do Império Romano (100-313 d.C.).** 🔥📖  
