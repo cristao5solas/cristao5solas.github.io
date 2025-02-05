@@ -1,4 +1,4 @@
-# **5) História Geral da Igreja (Período Apostólico até a Reforma)**  
+# **15) História Geral da Igreja (Período Apostólico até a Reforma)**  
 
 A Igreja de Cristo não começou na Idade Média, nem com a Reforma Protestante. Ela foi estabelecida pelo próprio Senhor Jesus e edificada pelos Apóstolos, conforme a promessa:  
 
@@ -10,7 +10,7 @@ Neste estudo, veremos **como Deus preservou Sua Igreja ao longo dos séculos**, 
 
 ---
 
-## **5.1 A Igreja Apostólica (30-100 d.C.)**  
+## **15.1 A Igreja Apostólica (30-100 d.C.)**  
 
 📜 **O início da Igreja**  
 
@@ -39,7 +39,7 @@ Os Apóstolos escreveram cartas inspiradas pelo Espírito Santo, combatendo fals
 
 ---
 
-## **5.2 A Igreja Primitiva e as Perseguições (100-313 d.C.)**  
+## **15.2 A Igreja Primitiva e as Perseguições (100-313 d.C.)**  
 
 📜 **O crescimento da Igreja apesar da perseguição**  
 
@@ -63,7 +63,7 @@ Com a morte dos Apóstolos, a Igreja continuou a se expandir, enfrentando perseg
 
 ---
 
-## **5.3 A Igreja sob o Império Romano e os Primeiros Concílios (313-590 d.C.)**  
+## **15.3 A Igreja sob o Império Romano e os Primeiros Concílios (313-590 d.C.)**  
 
 📜 **A conversão de Constantino e o Edito de Milão (313 d.C.)**  
 
@@ -90,7 +90,7 @@ O imperador Constantino, após uma suposta visão da cruz, legalizou o Cristiani
 
 ---
 
-## **5.4 A Idade Média e a Igreja Medieval (590-1517 d.C.)**  
+## **15.4 A Idade Média e a Igreja Medieval (590-1517 d.C.)**  
 
 📜 **A ascensão do Papado e a corrupção eclesiástica**  
 
@@ -108,7 +108,7 @@ O imperador Constantino, após uma suposta visão da cruz, legalizou o Cristiani
 
 ---
 
-## **5.5 O Caminho para a Reforma (1300-1517 d.C.)**  
+## **15.5 O Caminho para a Reforma (1300-1517 d.C.)**  
 
 📜 **Os primeiros pré-reformadores**  
 
@@ -132,4 +132,4 @@ A Igreja passou por perseguições, corrupções e desvios, mas Deus sempre pres
 
 ---
 
-**O próximo estudo abordará os desvios da Igreja Católica e o surgimento do evangelicalismo.** 🔥📖  
+**O próximo estudo abordará [A Igreja Apostólica](igreja-apostolica.md).** 🔥📖  
