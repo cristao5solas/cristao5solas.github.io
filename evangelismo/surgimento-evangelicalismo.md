@@ -330,4 +330,4 @@ A verdadeira Igreja deve permanecer firme na Palavra de Deus, rejeitando tanto *
 
 ---
 
-**No próximo estudo, veremos "[Os Cinco Solas da Reforma Protestante](os-cinco-solas.md)" e sua relevância para a fé cristã.** 🔥📖  
+**No próximo estudo, veremos [Os Cinco Solas da Reforma Protestante](os-cinco-solas.md) e sua relevância para a fé cristã.** 🔥📖  
