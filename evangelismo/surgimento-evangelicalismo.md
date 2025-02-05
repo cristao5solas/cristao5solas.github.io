@@ -213,6 +213,25 @@ A Bíblia ensina que:
 
 ---
 
+### **3️⃣ O Problema da Teologia da Prosperidade**  
+📜 **Transformando Deus em um meio para riquezas**  
+
+A **Teologia da Prosperidade** ensina que a fé cristã deve trazer **sucesso financeiro, saúde perfeita e conquistas materiais**, transformando o Evangelho **em uma barganha com Deus**.  
+
+📌 **Principais erros da Teologia da Prosperidade:**  
+
+✅ **Promessa de bênçãos condicionadas a ofertas financeiras**  
+🔹 Pastores e líderes prometem curas e milagres **em troca de dinheiro**.  
+
+> **"O amor ao dinheiro é a raiz de todos os males."** (1 Timóteo 6:10)  
+
+✅ **Culto ao materialismo e ao triunfalismo**  
+🔹 O sofrimento e a humildade são rejeitados como parte da vida cristã.  
+
+> **"Acautelai-vos e guardai-vos da avareza, porque a vida de qualquer um não consiste na abundância do que possui."** (Lucas 12:15)  
+
+---
+
 ### **4️⃣ O Problema do Ecumenismo Relativista**  
 📜 **A falsa unidade que compromete a verdade**  
 
