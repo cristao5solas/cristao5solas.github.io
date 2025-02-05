@@ -112,4 +112,4 @@ Apocalipse não apenas revela o futuro—ele exalta **Cristo como Senhor da hist
 - **Saber que Cristo reina te dá segurança em meio às incertezas do mundo?**  
 - **Como essa visão da eternidade pode transformar sua vida hoje?**  
 
-Agora que concluímos **o estudo do Novo Testamento**, podemos refletir sobre **a importância do estudo contínuo das Escrituras e da firmeza na fé**.  
+Agora que concluímos **o estudo do Novo Testamento**, iremos aprender **como a [igreja caminhou](historia-igreja.md) ao longo dos séculos**.  
