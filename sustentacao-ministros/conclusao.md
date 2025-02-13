@@ -1,0 +1,13 @@
+# Conclusão  
+
+Ao longo deste estudo, vimos que a Bíblia ensina de forma clara e consistente que o sustento dos obreiros do evangelho é legítimo, recomendado e necessário. Desde o Antigo Testamento, Deus estabeleceu que aqueles que se dedicam ao serviço espiritual devem ser sustentados pelo povo de Deus. Esse princípio não foi abolido no Novo Testamento, mas reafirmado por Cristo e pelos apóstolos.  
+
+O sustento pastoral, no entanto, precisa ser compreendido dentro de um equilíbrio saudável. Se por um lado a igreja tem a responsabilidade de prover para aqueles que ministram a Palavra, por outro, a Escritura condena aqueles que veem o ministério como um meio de lucro pessoal. A presença de falsos mestres, mercenários da fé e exploradores do povo de Deus não deve ser usada como justificativa para negar o sustento legítimo dos pastores fiéis. O erro não está na provisão financeira, mas na corrupção daqueles que abusam dela.  
+
+A decisão de Paulo de, em alguns contextos, abrir mão do sustento ministerial não anula esse princípio. Como vimos, ele mesmo ensinou sobre a necessidade do sustento pastoral e, em outras ocasiões, aceitou ajuda financeira de igrejas já estabelecidas. Sua escolha de não receber sustento em determinados momentos foi estratégica, para evitar qualquer acusação de interesse financeiro na pregação do evangelho. Isso não deve ser tomado como um mandamento universal, mas como uma decisão pessoal dentro de circunstâncias específicas.  
+
+Além disso, vimos que a dedicação integral ao ministério é o modelo mais adequado para o pastorado. Embora, em alguns casos, um obreiro possa precisar trabalhar para seu próprio sustento, essa não é a situação ideal. A igreja deve crescer e amadurecer ao ponto de prover para seus pastores, permitindo que eles se concentrem totalmente no ensino da Palavra, na oração e no cuidado do rebanho.  
+
+Portanto, a Bíblia nos chama a um discernimento equilibrado: rejeitar tanto a exploração financeira da fé quanto a negligência com os que servem no ministério. A igreja deve honrar aqueles que trabalham na pregação e no ensino, garantindo que possam exercer seu chamado sem impedimentos materiais, ao mesmo tempo em que deve estar atenta para não sustentar aqueles que distorcem o evangelho por ganância.  
+
+O modelo bíblico é claro. O verdadeiro ministro não vê o evangelho como uma oportunidade de lucro, mas também não deve ser deixado sem sustento. A responsabilidade da igreja é reconhecer aqueles que trabalham fielmente na obra de Deus e prover para que possam servi-la sem distrações. Essa é a vontade do Senhor para o Seu povo.
