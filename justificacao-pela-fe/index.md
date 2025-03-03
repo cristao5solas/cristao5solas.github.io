@@ -588,27 +588,47 @@ Se alguém vive no pecado sem arrependimento, isso é evidência de que **nunca 
 
 *"Saíram de nós, mas não eram dos nossos; porque, se fossem dos nossos, ficariam conosco; mas isto é para que se manifestasse que não são todos os nossos."* (1 João 2:19)  
 
-Mas o crente **não deve temer que uma queda o retire da graça de Deus.**  
+## **A Diferença Entre Tropeçar e Permanecer no Pecado**  
 
-Quando Jesus disse à mulher adúltera:  
+Um salvo pode pecar? Sim. Mas ele **não permanece confortável no pecado.**  
+
+Davi caiu em adultério e assassinato, mas **não permaneceu endurecido – ele se arrependeu.**  
+
+Pedro negou Jesus três vezes, mas **não se afastou definitivamente – ele foi restaurado.**  
+
+Judas, por outro lado, **não se arrependeu verdadeiramente – ele permaneceu no pecado até o fim.**  
+
+A diferença não é a queda, mas **a resposta à queda.**  
+
+*"Cria em mim, ó Deus, um coração puro, e renova em mim um espírito reto."* (Salmo 51:10)  
+
+O verdadeiro salvo **não descansa no pecado, mas busca a Deus para ser restaurado.**  
+
+Por isso, quando Jesus disse à mulher adúltera:  
 
 *"Nem eu te condeno; vai-te, e não peques mais."* (João 8:11)  
 
-Ele **não estava dizendo que se ela pecasse novamente, perderia o perdão**. Pelo contrário, **Cristo estava chamando-a ao arrependimento e a uma nova vida**.  
+Ele **não estava impondo uma condição para manter a salvação, mas chamando-a ao arrependimento e à santidade.**  
 
-Essa ordem de Jesus **não é uma condição para manter a salvação**, mas uma exortação para viver conforme a nova realidade que a graça concede.  
+Cristo não estava dizendo: **"Se pecar de novo, será condenada."** Se fosse assim, nenhum salvo poderia permanecer de pé. Pelo contrário, Ele estava dizendo: **"Agora que foste perdoada, não volte ao caminho da escravidão do pecado."**  
 
-O crente não vive no pecado **não porque teme perder a salvação, mas porque foi transformado pela graça.**  
+O chamado de Jesus **não é para um temor servil, mas para uma vida transformada pela graça.**  
 
-Por isso, se alguém peca depois da conversão, **não significa que sua justificação foi anulada**, mas que **precisa se arrepender e buscar a restauração em Cristo**.  
+*"Assim também vós considerai-vos como mortos para o pecado, mas vivos para Deus em Cristo Jesus nosso Senhor."* (Romanos 6:11)  
+
+Se um salvo peca, **ele não perde sua justificação, mas precisa buscar arrependimento e restauração**.  
 
 *"Filhinhos, estas coisas vos escrevo, para que não pequeis; e, se alguém pecar, temos um Advogado para com o Pai, Jesus Cristo, o Justo."* (1 João 2:1)  
 
-O salvo **não permanece no pecado, mas também não vive em terror de ser rejeitado.** Ele sabe que tem um Senhor que o sustenta, disciplina e restaura.  
+Portanto, **não é a queda que define um salvo, mas sua reação à queda**.  
 
-A graça de Deus não nos dá permissão para pecar. Ela nos sustenta, nos levanta e nos ensina a viver para Deus.  
+Se ele endurece o coração e continua no pecado sem arrependimento, isso mostra que **nunca nasceu de novo**.  
 
-Aquele que é salvo **nunca mais será o mesmo.**  
+Mas se ele se quebranta e volta-se para Deus, isso prova que **a graça está operando nele.**  
+
+*"O justo cairá sete vezes, e se levantará; mas os ímpios tropeçarão no mal."* (Provérbios 24:16)  
+
+O salvo pode tropeçar, mas **nunca permanecerá prostrado.**  
 
 
 
