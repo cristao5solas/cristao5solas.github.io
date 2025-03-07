@@ -104,7 +104,99 @@ Isso mostra que **o esforço não é para ser resgatado (justificação), mas si
 
 ---
 
-# **Respondendo às Dúvidas do Vagner**  
+# **Respondendo às suas Dúvidas, irmão Vagner**  
 
-(Agora insira aqui as respostas diretas às perguntas dele, conforme já estruturamos anteriormente.)  
+## **1. "Se toda tentativa de ser aceito por Deus com base no próprio desempenho é rejeitar a suficiência de Cristo, isso significa que não precisamos fazer mais nada?"**  
 
+### **Resposta:**  
+**Não, o texto original não está dizendo que o crente não precisa mais fazer nada. O que ele está ensinando é que não há esforço humano na justificação – mas há esforço na santificação e no serviço a Deus.**  
+
+A afirmação no texto original se refere **exclusivamente à justificação**, que é **pela fé e sem obras**. Isso está fundamentado nas Escrituras:  
+
+> "Concluímos, pois, que o homem é justificado pela fé, sem as obras da lei." (Romanos 3:28)  
+
+> "Sabemos que o homem não é justificado pelas obras da lei, mas pela fé em Jesus Cristo." (Gálatas 2:16)  
+
+Ou seja, **não há nada que um pecador possa fazer para ser aceito por Deus além de crer em Cristo.**  
+
+**Mas isso não significa que a vida cristã não envolve esforço.** O esforço vem **depois** da justificação, na santificação e no serviço a Deus. Isso fica claro quando a Bíblia ensina que devemos buscar ativamente a santidade:  
+
+> "Segui a paz com todos, e a santificação, sem a qual ninguém verá o Senhor." (Hebreus 12:14)  
+
+E também que há um esforço em crescer na fé:  
+
+> "Desenvolvei a vossa salvação com temor e tremor; porque Deus é o que opera em vós tanto o querer como o efetuar, segundo a sua boa vontade." (Filipenses 2:12-13)  
+
+Portanto, o texto original **não está negando que há coisas a serem feitas na vida cristã – apenas deixando claro que nenhum esforço humano pode justificar alguém diante de Deus.**  
+
+Depois de justificados, **devemos nos esforçar para viver de maneira digna do chamado de Deus (Efésios 4:1), crescer na santificação (Hebreus 12:14) e trabalhar para o Reino (1 Coríntios 15:58).**  
+
+---
+
+## **2. "Se a justificação não vem da tentativa de melhorar de vida, então o esforço de buscar a Deus antes da conversão não tem valor?"**  
+
+### **Resposta:**  
+**O esforço humano, por si só, nunca pode gerar a salvação. Mas Deus usa a busca sincera para levar uma pessoa à fé verdadeira.**  
+
+A Bíblia ensina que **ninguém busca a Deus por conta própria**:  
+
+> "Não há quem entenda; não há quem busque a Deus." (Romanos 3:11)  
+
+Isso significa que, se alguém começa a ter interesse por Deus, **isso já é resultado da graça de Deus agindo nessa pessoa**. Jesus disse:  
+
+> "Ninguém pode vir a mim, se o Pai que me enviou não o trouxer." (João 6:44)  
+
+Ou seja, **se alguém busca a Deus, é porque Deus já está atraindo essa pessoa.**  
+
+Mas há uma diferença entre **buscar a Deus para conhecê-Lo** e **tentar se justificar diante dEle pelo próprio esforço.** Se alguém pensa que será aceito por Deus porque tenta melhorar de vida ou ser uma boa pessoa, ainda não entendeu a graça.  
+
+A parábola do fariseu e do publicano deixa isso claro:  
+
+> "O fariseu, de pé, orava consigo desta maneira: 'Ó Deus, graças te dou porque não sou como os demais homens... jejuo duas vezes na semana e dou os dízimos de tudo quanto possuo'.  
+> Mas o publicano, estando em pé de longe, nem ainda queria levantar os olhos ao céu, mas batia no peito, dizendo: 'Ó Deus, tem misericórdia de mim, pecador!'.  
+> **Digo-vos que este desceu justificado para sua casa, e não aquele.**" (Lucas 18:11-14)  
+
+O fariseu confiava em sua obediência, enquanto o publicano reconheceu sua incapacidade e pediu misericórdia. **A justificação vem pela fé, não pelo esforço humano.**  
+
+Isso não significa que a busca de alguém não tem valor – mas sim que a salvação não depende dessa busca, e sim **da fé genuína que deposita toda a confiança em Cristo.**  
+
+Portanto, o texto original está **fundamentado na verdade bíblica ao afirmar que Deus não aceita um pecador porque ele tenta melhorar sua vida.** Deus o aceita **porque Cristo morreu por ele e ele creu nessa obra.**  
+
+---
+
+## **3. "Se a justificação não vem do nosso esforço, isso significa que, depois que cremos, não precisamos fazer mais nada?"**  
+
+### **Resposta:**  
+**Não, o texto original não está dizendo que não há mais nada a ser feito na vida cristã. O que ele está ensinando é que não há esforço humano na justificação – mas há esforço na santificação e no serviço a Deus.**  
+
+O trecho destacado no texto original ensina que **nenhum esforço humano pode justificar alguém diante de Deus.** Isso está fundamentado na Bíblia:  
+
+> "Não pelas obras de justiça que houvéssemos feito, mas segundo a sua misericórdia, nos salvou." (Tito 3:5)  
+
+> "Ao que não trabalha, mas crê naquele que justifica o ímpio, a sua fé lhe é imputada como justiça." (Romanos 4:5)  
+
+Isso significa que **ninguém pode ser aceito por Deus com base no próprio desempenho** – seja por obedecer à Lei, praticar boas obras, ter uma vida moral ou se dedicar religiosamente. **A justificação vem somente pela fé.**  
+
+Porém, **depois que somos justificados, há esforço na vida cristã.** A santificação exige que o crente lute contra o pecado e cresça na fé, e o galardão será dado conforme a fidelidade do crente. Mas esses esforços são **resultado** da salvação, não **causa** dela.  
+
+Isso fica claro quando Paulo ensina que, **embora a salvação seja um dom gratuito, o crente é chamado a viver de modo digno dela**:  
+
+> "Assim, meus amados, como sempre obedecestes, não só na minha presença, mas muito mais agora na minha ausência, **desenvolvei a vossa salvação com temor e tremor.**" (Filipenses 2:12)  
+
+Isso significa que **o crente não se esforça para ser aceito por Deus, mas porque já foi aceito.**  
+
+Por isso, o texto original **não está negando a importância do esforço na vida cristã, mas apenas deixando claro que nenhum esforço humano pode justificar alguém diante de Deus.**  
+
+---
+
+## **Resumo Final**  
+
+O texto original está **fundamentado na verdade bíblica ao ensinar que nenhum esforço humano pode nos justificar.** Porém, isso **não significa que não há esforço na vida cristã – apenas que esse esforço ocorre depois da justificação, e não antes.**  
+
+Se alguém tenta se justificar por suas obras, **está anulando a graça de Deus**:  
+
+> "E, se é pela graça, já não é pelas obras; de outra maneira, a graça já não é graça." (Romanos 11:6)  
+
+Portanto, a afirmação do texto original **não está negando a santificação ou o galardão, mas apenas colocando cada coisa no seu devido lugar.**  
+
+ 
