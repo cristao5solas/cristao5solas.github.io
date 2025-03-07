@@ -1,22 +1,21 @@
-
 # **A Diferença Entre Justificação, Santificação, Galardão e Glorificação**  
 
-A salvação é uma obra completa de Deus, mas muitas vezes as pessoas misturam seus diferentes aspectos. Isso pode levar a confusão, como:  
+Muitas vezes, quando falamos sobre salvação, diferentes aspectos dessa obra grandiosa de Deus acabam sendo misturados. Isso pode levar a algumas confusões, como:  
 
-- **Tentar ser aceito por Deus pelo esforço humano (legalismo).**  
-- **Achar que não há esforço nenhum na vida cristã (antinomianismo).**  
-- **Confundir a salvação com as recompensas (galardão).**  
+- **Achar que precisamos de esforço próprio para sermos aceitos por Deus (legalismo).**  
+- **Pensar que, por sermos salvos, não há mais nada a fazer (antinomianismo).**  
+- **Confundir a salvação com as recompensas que Deus dará aos crentes (galardão).**  
 
-Para evitar esses erros, é essencial entender que **a salvação tem três etapas principais: Justificação, Santificação e Glorificação. Além disso, a Bíblia ensina que haverá galardões como recompensa para os salvos, mas isso não faz parte da salvação em si.**  
+Para entender melhor a obra de Deus em nossa vida, é importante saber que **a salvação tem três aspectos principais: Justificação, Santificação e Glorificação. Além disso, a Bíblia ensina que haverá galardões como recompensas para os salvos, mas isso não faz parte da salvação em si.**  
 
-Cada uma dessas etapas tem um propósito específico, um momento específico e um nível de esforço diferente.  
+Cada uma dessas etapas tem um propósito específico, acontece em um momento específico e exige um nível diferente de esforço.  
 
 ---
 
 ## **1. Justificação – O Ato Inicial e Completo da Salvação**  
 
 ### **O que é?**  
-Justificação é o ato legal e definitivo em que Deus declara um pecador justo diante dEle. Isso acontece **unicamente pela fé em Cristo** e **sem qualquer mérito ou esforço humano**.  
+Justificação é o ato legal e definitivo em que Deus declara um pecador justo diante dEle. Isso acontece **somente pela fé em Cristo** e **sem qualquer mérito ou esforço humano**.  
 
 ### **É instantânea ou progressiva?**  
 **Instantânea.** No momento em que uma pessoa crê em Cristo, ela é totalmente justificada.  
