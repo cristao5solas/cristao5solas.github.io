@@ -1,4 +1,4 @@
-```md
+
 # O Propósito da História: Por Que Deus Não Criou os Eleitos Já Glorificados?  
 
 A Bíblia ensina que Deus é absolutamente soberano sobre todas as coisas, incluindo a criação, a queda do homem e a redenção dos eleitos. Nada acontece fora do Seu plano perfeito, pois Ele opera todas as coisas conforme o conselho da Sua vontade (Efésios 1:11; Isaías 46:9-10). No entanto, surge uma questão profunda: se Deus já determinou desde a eternidade quem seriam os Seus eleitos e os destinou à glória, por que Ele escolheu realizar esse propósito através da longa história da humanidade? Por que não criou os Seus escolhidos já em estado glorificado, livres do pecado e do sofrimento?  
@@ -36,4 +36,3 @@ A Escritura nos dá razões suficientes para confiar que o caminho escolhido por
 Deus poderia ter criado os eleitos já glorificados, mas escolheu um caminho que revelaria de forma mais plena a Sua glória e Seus atributos. A história da humanidade não é um erro ou uma fase desnecessária, mas o palco no qual Deus exalta a Cristo, manifesta Sua justiça e graça, e conduz Seus escolhidos à glória eterna.  
 
 Assim como uma criança não entende plenamente os caminhos de seus pais, mas confia neles, nós também devemos confiar que o plano divino é perfeito, ainda que nem todas as respostas estejam acessíveis a nós neste momento. No final, veremos que tudo foi para a glória de Deus e para o bem dos Seus eleitos (Romanos 11:33-36).
-```
